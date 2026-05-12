@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 18:46
+---
+
+## FoxNewsTwitter — post 341589
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341589_1778598999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Two individuals were just ejected from the Senate Appropriations hearing as War Secretary Pete Hegseth and Joint Chiefs Chairman Gen. Dan Caine faces questions from lawmakers about military funding amid the war with Iran.
+
+One of the protesters escorted out was a woman was yelling about Iranian-American opposition to the Middle East war.
+</div>
+
+## FarsiVOA — post 217538
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217538_1778599001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی ارتش ایالات متحده آمریکا، روز سه‌شنبه ۲۲ اردیبهشت در شبکه اجتماعی ایکس با انتشار عکسی از ناو هواپیمابر آبراهام لینکلن (سی‌وی‌ان ۷۲) نوشت: « نیروهای سنتکام ۶۵ کشتی تجاری را تغییر مسیر داده و ۴ کشتی را از کار انداخته‌اند.»
+
+در ادامه سنتکام افزوده است که ناو هواپیمابر آبراهام لینکلن به عملیات خود در دریای عرب، از جمله اعمال محاصره دریایی ایالات متحده علیه ایران، ادامه می‌دهد.
+</div>
+
+## DW_Farsi — post 124615
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124615_1778599002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سفیر آمریکا در اسرائیل استفاده امارات از سامانه "گنبد آهنین" را تایید کرد
+
+مایک هاکبی، سفیر ایالات متحده آمریکا در اسرائیل با بیان این که "امارات متحده عربی، از توافق‌نامه‌های ابراهیم و عادی‌سازی روابط با اسرائیل، سود برده است" از به‌کار‌گیری سامانه دفاع موشکی "گنبد آهنین" اسرائیل در امارات برای مقابله با موشک‌های پرتاب شده از ایران در جریان جنگ خبر داد.
+
+هاکبی با اشاره به پیامدهای حاصل از پیمان ابراهیم برای امارات گفت: «فقط نگاهی به مزایای آن بیندازید. اسرائیل همین حالا سامانه‌های گنبد آهنین و نیروهایی را برای کمک به بهره‌برداری از آن‌ها برایشان فرستاده است.»
+
+امارات متحده عربی در چارچوب توافق‌نامه‌های ابراهیم که در سال ۲۰۲۰ با میانجی‌گری ایالات متحده آمریکا انجام شد، اسرائیل را به رسمیت شناخت.
+
+پیش از این فایننشال تایمز گزارش داده بود که اسرائیل برای کمک به دفاع از امارات، سامانه شناسایی سبک "اسپکترو" و سامانه پدافند موشکی را همراه با ده‌ها نیروی نظامی به این کشور فرستاده است. این گزارش، استقرار این تجهیزات را یکی از نخستین نمونه‌های بزرگ همکاری دفاعی میان اسرائیل و امارات می‌داند؛ همکاری‌ای که در جنگ اخیر برای نخستین بار در مقیاسی گسترده آزموده شد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 13988
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13988_1778599003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست: آتش‌بس با ایران در حال اجراست
+ 
+
+💢آتش‌بس با ایران در «وضعیت بسیار پویا» قرار دارد و در حال اجرا ست.
+ 
+💢آتش‌بس به معنای توقف آتش‌پرانی است و می‌دانیم این اتفاق در حین مذاکرات رخ داده است و گفتگوهای مختلف بسیاری با تیم مذاکره ‌کننده ما در حال انجام است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر آموزش و پرورش:
+
+کلاس‌ها تا پایان سال تحصیلی مجازی شده است و امتحانات قرار است از ۹ خرداد برگزار بشود.
+
+@IranianMinds
+</div>
+
+## alonews — post 119517
+
+<div align="center">
+  <a href="telegram/content/alonews_119517_1778599004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس:
+احتمال حمله قریب‌الوقوع آمریکا به کوبا
+
+
+🔴تشدید تهدیدهای ترامپ و روبیو نشان می‌دهد که حمله به کوبا می‌تواند قریب‌الوقوع باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 18:36
 ---
 
