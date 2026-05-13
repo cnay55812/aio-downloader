@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 14:03
+---
+
+## VahidOOnLine — post 239873
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239873_1778668400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه وال‌استریت ژورنال به نقل از مقام‌های عرب و یک فرد آگاه گزارش داد دیوید بارنئا، رییس موساد، در جریان جنگ علیه جمهوری اسلامی دست‌کم دو بار به امارات متحده عربی سفر کرد تا درباره هماهنگی‌های مرتبط با جنگ گفت‌وگو کند.
+
+به گفته منابع آگاه، بارنئا در ماه‌های مارس و آوریل در دو نوبت جداگانه و به‌صورت محرمانه به امارات متحده عربی سفر کرد.
+
+وزارت خارجه امارات متحده عربی و دفتر نخست‌وزیر اسرائیل بلافاصله به درخواست‌های این روزنامه برای اظهار نظر پاسخ ندادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9023
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9023_1778668400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌به نظر می‌رسد حریم هوایی اطراف سن‌پترزبورگ بسته شده و پروازها در فاصله‌ای امن در حالت انتظار قرار گرفته‌اند.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 336960
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336960_1778668401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «گرانی بیداد می‌کند. جوان ۲۴ ساله‌ای هستم که هر شب از شدت غم، فکر می‌کنم الان است که سکته کنم. هیچ‌کس به داد ما نمی‌رسد.»
+</div>
+
+## FarsiVOA — post 217604
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217604_1778668402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژانس بین‌المللی انرژی از ادامه افت تولید نفت اوپک در ماه آوریل به رغم آتش‌بس میان جمهوری اسلامی و آمریکا خبر داد.
+
+بر اساس این گزارش، تولید روزانه نفت اعضای اوپک در ماه گذشته ۲۰ میلیون و ۱۸۰ هزار بشکه بوده که ۶۲۰ هزار بشکه کمتر از ماه مارس است.
+
+در مجموع تولید روزانه نفت در جهان به خاطر انسداد تنگه هرمز توسط جمهوری اسلامی از ۹ اسفند، ۱۲ میلیون و ۸۰۰ هزار بشکه افت داشته است که بخشی از آن با آزادسازی ذخایر استراتژیک نفت جبران شده است.
+
+ذخایر نفت قابل مشاهده جهان در ماه مارس ۱۲۹ میلیون بشکه و در ماه گذشته ۱۱۷ میلیون بشکه افت کرده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ طبق گزارش وال استریت ژورنال، دیوید بارنیا، رئیس موساد، حداقل دو بار در طول جنگ به امارات متحده عربی سفر کرد تا هماهنگی کمپین علیه ایران (جمهوری اسلامی) را انجام دهد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 119697
+
+<div align="center">
+  <a href="telegram/content/alonews_119697_1778668403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت ایلان ماسک داخل ایکس : تو راه پکن با هواپیمای ایرفورس وان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 13:54
 ---
 
