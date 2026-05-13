@@ -9,6 +9,9 @@ on:
           Separate by commas, spaces, or newlines.
         required: true
 
+permissions:
+  contents: write
+
 jobs:
   actions:
     runs-on: ubuntu-latest
