@@ -4,15 +4,18 @@ import os
 import re
 import sys
 import argparse
+import random
+import string
 from pyppeteer import launch
 from urllib.parse import urlparse
 
 def sanitize_filename(name: str) -> str:
-    """Remove invalid characters for filenames."""
     return re.sub(r'[\\/*?:"<>|]', "_", name)
 
+def random_suffix(length=5):
+    return ''.join(random.choices(string.ascii_lowercase, k=length))
+
 async def save_mhtml(url: str, output_file: str):
-    """Save webpage as MHTML."""
     browser = await launch(headless=True, args=['--no-sandbox'])
     page = await browser.newPage()
     await page.goto(url, waitUntil='networkidle0')
@@ -27,7 +30,6 @@ def main():
     parser.add_argument("--title", help="Optional title for the output file (without extension)")
     args = parser.parse_args()
 
-    # Determine output filename
     if args.title:
         base_name = sanitize_filename(args.title)
     else:
@@ -40,26 +42,26 @@ def main():
         if not base_name:
             base_name = "webpage"
 
+    # Random 5-letter suffix to avoid filename conflicts
+    base_name = f"{base_name}-{random_suffix()}"
+
     mhtml_filename = f"{base_name}.mhtml"
     zip_filename = f"{base_name}.zip"
 
-    # Create download directory
-    download_dir = "download"
-    os.makedirs(download_dir, exist_ok=True)
+    # All files go into 'website/' folder now
+    output_dir = "website"
+    os.makedirs(output_dir, exist_ok=True)
 
-    # Temporary folder for MHTML
     os.makedirs("temp", exist_ok=True)
     mhtml_path = os.path.join("temp", mhtml_filename)
 
     print(f"Downloading {args.url} → {mhtml_filename}")
     asyncio.run(save_mhtml(args.url, mhtml_path))
 
-    # Create ZIP inside download folder
-    zip_path = os.path.join(download_dir, zip_filename)
+    zip_path = os.path.join(output_dir, zip_filename)
     with zipfile.ZipFile(zip_path, 'w') as zf:
         zf.write(mhtml_path, arcname=mhtml_filename)
 
-    # Cleanup temp
     import shutil
     shutil.rmtree("temp", ignore_errors=True)
 
