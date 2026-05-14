@@ -7,6 +7,126 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 21:54
+---
+
+## WithYashar — post 11237
+
+
+
+
+## FoxNewsTwitter — post 341751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Vice President JD Vance squares off with a local reporter over the scale of corruption in Maine, warning that current fraud findings are just the "tip of the iceberg."
+
+REPORTER: "My question is, what else do you got? What else has your task force flagged that we should be concerned about? Because those amounts are a lot, 46 million, 1.7 million, but they don't really compare to California and Minnesota."
+
+VANCE: "Ladies and gentlemen, we've got biased reporters in all states. It's okay. Trust me, I can handle I can handle it... I suspect we are going to find hundreds of millions of more dollars every single month that we look in the state of Maine, because this is not a state that takes it seriously."
+</div>
+
+## pm_afshaa — post 90754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کارشناس کانال 14 اسرائیل: رژیم ایران به شدت به پول نیاز داره و در حال انجام تماس‌های مخفی و مستقیم با دولت ترامپه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 217751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی جوانمردی: سفر تاریخی پرزیدنت ترامپ بە چین، رونق اقتصادی و اجلاس مدیریت بحران
+</div>
+
+## DW_Farsi — post 124711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 جام ۱۹۵۴ • فرانس پوشکاش، گلزن اسطوره‌ای قرن بیستم
+ 
+فرانس پوشکاش در فاصله‌ سال‌های ۱۹۵۰ تا ۱۹۵۴ کاپیتان تیم ملی فوتبال مجارستان بود، تیمی که با "نسل طلایی" بازیکنان مجار می‌خواست و می‌توانست قله‌ فوتبال جهان را فتح کند. این آرزو اما با "معجزه‌ی برن" در سال ۱۹۵۴، نقش بر آب شد.
+ 
+مجارستان در آن سال در فینال جام جهانی در سوئیس در میان شگفتی همگان مغلوب آلمان شد و پوشکاش و یارانش در حسرت مقام قهرمانی ماندند.
+ 
+پوشکاش در تاریخ دوم آوریل سال ۱۹۲۷ در "کیش‌پشت" واقع در نزدیکی بوداپست زاده شد. نام واقعی او "فرانس پورتسلد" بود. پدر پوشکاش نیز بازیکن و مربی فوتبال بود. پوشکاش که در بازی فوتبال استعداد شگرفی داشت، زیر نظر پدر و با تمرینات مداوم، در پانزده سالگی مستقیما به تیم بزرگسالان باشگاه شهر خود منتقل شد.
+ 
+از آنجا که در تیم خود از همه جوان‌تر و کوچک‌تر بود، همبازی‌ها به او لقب "پوشکاش اوکسی" دادند که به معنای "برادر کوچک" بود. البته نام پوشکاش به واژه‌ی مجاری "پوشکا" به معنای تفنگ نیز شبیه بود که قدرت شلیک را تداعی می‌کرد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14159
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14159_1778783056.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸🇨🇳 لی جون، بنیان‌گذار و مدیرعامل شرکت شیائومی، در حال گرفتن عکس سلفی با ایلان ماسک، ثروتمندترین فرد جهان و تاریخ.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14156
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14156_1778783056.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل در حال توزیع تورهای ضد پهپاد به نیروهای خود در جنوب لبنان برای مقابله با پهپادهای FPV حزب‌الله است.
+
+▪️تا کنون ۱۵۸٬۰۰۰ متر مربع نصب شده و ۱۸۸٬۰۰۰ متر مربع دیگر در سفارش است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 120006
+
+<div align="center">
+  <a href="telegram/content/alonews_120006_1778783057.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: آرامش فریبنده بازار نفت دوام نخواهد داشت
+
+
+🔴تحلیل‌های بازار نشان می‌دهد که ثبات نسبی فعلی در قیمت‌های جهانی نفت تنها سکوتی پیش از طوفان است و ریسک‌های ژئوپلیتیک به‌زودی نوسانات شدیدی را رقم خواهند زد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120005
+
+<div align="center">
+  <a href="telegram/content/alonews_120005_1778783057.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران: ایران پنج شرط خود را برای مذاکره با واشنگتن اعلام کرد و میانجی پاکستانی آنها را [به آمریکا] رسانده است تا منتظر پاسخ آمریکا به این شروط باشد.
+
+
+🔴 ممکن است برداشت اولیهٔ آمریکایی این باشد که اینها حداکثر سقف خواسته‌ها است.
+
+
+🔴تهران منتظر است که میانجی پاکستانی پاسخ کاخ سفید را بیاورد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 21:41
 ---
 
