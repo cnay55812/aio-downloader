@@ -7,6 +7,151 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 22:30
+---
+
+## VahidOOnLine — post 240174
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240174_1778785232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدعلی جعفری، فرمانده قرارگاه «بقیه‌الله» سپاه پاسداران، در ویدیویی که بخش‌هایی از آن را خبرگزاری تسنیم منتشر کرده، گفت: «جمهوری اسلامی بدون اقدامات اعتمادساز از سوی آمریکا وارد مذاکرات نمی‌شود و آغاز دوباره جنگ قطعا به ضرر آمریکاست».
+
+جعفری افزود: «دونالد ترامپ از متن‌های ارسالی تیم مذاکره‌کننده جمهوری اسلامی خوشش نمی‌آید، اما راه بهتری جز پذیرش شروط تهران ندارد».
+
+او گفت جمهوری اسلامی در «گام اول» با آمریکا مذاکره نمی‌کند و از طریق پاکستان در حال تبادل پیام بر اساس شروط خود است.
+
+فرمانده قرارگاه «بقیه‌الله» سپاه پاسداران، گفت جمهوری اسلامی ابتدا اقدامات اعتمادساز خود را اعلام می‌کند و از «دشمن» تعهد می‌گیرد و تنها در صورت دریافت تعهد، وارد مذاکره می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## kianmeli1 — post 87407
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87407_1778785232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ می‌گوید شی جین‌پینگ، رئیس‌جمهور چین، به او گفته است که چین تجهیزات نظامی به ایران ارائه نخواهد داد و از توافق صلح حمایت کرده است.
+
+ترامپ همچنین می‌گوید که رئیس‌جمهور شی پیشنهاد میانجیگری برای کاهش تنش‌ها به منظور بازگشایی تنگه هرمز را داده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87406
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87406_1778785233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عربستان سعودی می‌خواهد با ایران پیمان عدم تجاوز امضا کند.
+
+این در حالی است که ایران در طول جنگ به خاک عربستان سعودی حمله کرده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87405
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87405_1778785233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گزارش رویترز، عربستان سعودی به رئیس جمهور ترامپ گفته است که جنگ با ایران باید پایان یابد و تنگه هرمز باید باز بماند و در صورت ادامه بحران، نسبت به «زیان‌های اقتصادی غیرقابل اندازه‌گیری» هشدار داده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87404
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87404_1778785234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دریاسالار برد کوپر، رئیس فرماندهی مرکزی ایالات متحده، گزارش‌های خبری مبنی بر اینکه ایران ۷۰ تا ۷۵ درصد از موشک‌ها و پرتابگرهای قبل از جنگ خود را حفظ کرده است، «غیردقیق» خواند و آنها را رد کرد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87403
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87403_1778785235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران از همه کشورهای عضو بریکس می‌خواهد که جنگ آمریکا و اسرائیل علیه خود را محکوم کنند.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337210
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337210_1778785235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337209
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337209_1778785236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدعلی جعفری، فرمانده قرارگاه «بقیه‌الله» سپاه پاسداران، در ویدیویی که بخش‌هایی از آن را خبرگزاری تسنیم منتشر کرده، گفت: «جمهوری اسلامی بدون اقدامات اعتمادساز از سوی آمریکا وارد مذاکرات نمی‌شود و آغاز دوباره جنگ قطعا به ضرر آمریکاست».
+
+جعفری افزود: «دونالد ترامپ از متن‌های ارسالی تیم مذاکره‌کننده جمهوری اسلامی خوشش نمی‌آید، اما راه بهتری جز پذیرش شروط تهران ندارد».
+
+او گفت جمهوری اسلامی در «گام اول» با آمریکا مذاکره نمی‌کند و از طریق پاکستان در حال تبادل پیام بر اساس شروط خود است.
+
+فرمانده قرارگاه «بقیه‌الله» سپاه پاسداران، گفت جمهوری اسلامی ابتدا اقدامات اعتمادساز خود را اعلام می‌کند و از «دشمن» تعهد می‌گیرد و تنها در صورت دریافت تعهد، وارد مذاکره می‌شود.
+https://iranintl.com/202605145338
+</div>
+
+## FarsiVOA — post 217763
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ: شی جین‌پینگ متعهد شده که به جمهوری اسلامی تجهیزات نظامی نفرستد
+</div>
+
+## FarsiVOA — post 217762
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217762_1778785237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داریوش سجادی در برنامه تفسیر خبر می‌گوید که فرصتی برای وساطت چین بین جمهوری اسلامی و آمریکا وجود ندارد
+</div>
+
+## IranianMinds — post 20146
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20146_1778785238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری ایسنا :
+
+از الان دیگه باید با قیمت قطعی خودرو خداحافظی کنید؛
+
+در طرح جدید ایران ‌خودرو و سایپا، خریداران باید نصف پول رو از اول بدن بدون اینکه حتی بفهمن قیمت نهایی زمان تحویل خودرو براشون چقدره !
+
+@IranianMinds
+</div>
+
+## alonews — post 120013
+
+<div align="center">
+  <a href="telegram/content/alonews_120013_1778785238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: اورشلیم را تحت حاکمیت اسرائیل برای همیشه حفظ خواهیم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 22:23
 ---
 
