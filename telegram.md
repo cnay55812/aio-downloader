@@ -7,6 +7,95 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 03:23
+---
+
+## VahidOOnLine — post 240210
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240210_1778802834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صفحه فارسی وزارت خارجه آمریکا، پنجشنبه ۲۴ اردیبهشت با انتشار پیامی اعلام کرد ایران، افغانستان، روسیه و کره شمالی در سطح ۴ هشدار سفر آمریکا، یعنی «سفر نکنید»، قرار دارند.
+در این پیام آمده است این کشورها دارای شاخص خطر «بازداشت ناعادلانه شهروندان آمریکایی» هستند و شهروندان آمریکا باید پیش از رزرو سفر، هشدارهای مقصد خود را بررسی کنند.
+وزارت خارجه آمریکا همچنین نوشت: «حقوق شما همراه شما سفر نمی‌کنند» و تاکید کرد سفارتخانه‌ها و کنسولگری‌های آمریکا خدمات مربوط به حمایت و حفاظت از شهروندان آمریکایی در خارج از کشور را ارائه می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341757
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341757_1778802835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump and President Xi Jinping sat for an over two-hour meeting in Beijing for a discussion on key topics, including trade and Taiwan.
+
+Secretary of State Rubio says Washington's stance on Taiwan remains the same, @BillMelugin_ reports.
+</div>
+
+## pm_afshaa — post 90762
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90762_1778802835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز: مقامات ارشد ارتش اسرائیل و سنتکام هفته گذشته جلسه داشتن و منتظرن ببینن فردا ترامپ بعد اتمام سفرش چه تصمیمی میگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90761
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90761_1778802836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی: پیش بینی کردیم هرکس که ترامپ رو به قتل برسونه، 50 میلیون یورو پاداش دریافت کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90760
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90760_1778802836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: خطر وجودی بمب اتمی و موشک‌های بالستیک رو از خودمون دور کردیم. اگه این کار رو نمی‌کردیم، امروز جمهوری اسلامی یه بمب اتمی داشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90759
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90759_1778802837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: دشمنان ما به دنبال نابودی همه ما هستند؛ همه ما آنها بین راست و چپ، سکولار و مذهبی، یهودی و عرب تفاوتی قائل نمیشن.
+
+اورشلیم رو تحت حاکمیت اسرائیل برای همیشه حفظ خواهیم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 03:14
 ---
 
