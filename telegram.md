@@ -7,6 +7,55 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 00:54
+---
+
+## IranIntlTV — post 337223
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337223_1778793876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با آغاز دور جدید مذاکرات مستقیم اسرائیل و لبنان در واشینگتن، مقام‌های اسرائیلی گفتند هدف این گفت‌وگوها خلع سلاح حزب‌الله و رسیدن به توافق صلح است.
+
+گفت‌وگو با ابراهیم روشندل، دیپلمات سابق و کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337222
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337222_1778793878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استیو دینز، سناتور جمهوری‌خواه، به مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گفت: «او تلاش می‌کند به جنگ ۴۷ ساله‌ای که این رژیم از طریق فعالیت‌های تروریستی خود علیه ایالات متحده و جهان آزاد به راه انداخته پایان دهد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337221
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337221_1778793879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند کشور منطقه شامل بحرین، کویت، عربستان سعودی، امارات متحده عربی، قطر و اردن در نامه‌ای فوری به سازمان ملل متحد، جمهوری اسلامی را مسئول خسارت‌های واردشده به برخی تأسیسات و یک کشتی در منطقه دانسته و خواستار پرداخت غرامت شده‌اند.
+@iranintltv
+</div>
+
+## alonews — post 120050
+
+<div align="center">
+  <a href="telegram/content/alonews_120050_1778793881.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد رائفی پور:
+آمریکایی‌ها متحد نیستن و بزودی تجزیه میشن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 00:44
 ---
 
