@@ -7,6 +7,233 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 23:04
+---
+
+## VahidOOnLine — post 240178
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240178_1778787259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری دولتی عراق (INA)، علی الزیدی، نخست‌وزیر جدید عراق که دولت او روز پنجشنبه ۲۴ اردیبهشت موفق به کسب رای اعتماد شد، متعهد شد که انحصار سلاح در اختیار دولت را تضمین کند.
+
+خبرگزاری INA به نقل از دفتر رسانه‌ای پارلمان گزارش داد که برنامه دولتی الزیدی شامل «اصلاح ساختار امنیتی از طریق محدود کردن مالکیت سلاح به کنترل دولت و تقویت توانمندی‌های نیروهای امنیتی» است.
+
+ایالات متحده به عنوان یکی از بازیگران کلیدی در عرصه سیاسی عراق، اخیرا فشارهای خود را بر بغداد افزایش داده است تا گروه‌های مورد حمایت جمهوری اسلامی را که واشنگتن آن‌ها را به عنوان سازمان‌های تروریستی می‌شناسد، خلع سلاح کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240177
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240177_1778787259.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت برای زنده نگه داشتن پدرش حتی کپسول اکسیژن هم پیدا نمی‌شد…
+و بیمارستان، با اون حال وخیم، مرخصش کرد چون تخت لازم داشت.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11240
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11240_1778787261.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیروزی بزرگ برای‌ ترامپ ، فاکس نیوز تایید کرد رئیس جمهور چین، شی جین پینگ دستور داد در مورد ایران، «هر چیزی که ترامپ نیاز دارد» را به آمریکا بدهید.
+
+از ‌آمریکا سویای بیشتری بخرید.
+
+نفت بیشتری از آمریکا بخرید.
+
+از آمریکا گاز مایع طبیعی بیشتری بخرید.
+
+۲۰۰ جت بوئینگ ۷۳۷ مکس بخرید.
+@withyashar
+</div>
+
+## WithYashar — post 11239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر خوب 😍
+</div>
+
+## pm_afshaa — post 90757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسراییل: اسرائیل سطح هشدار را به اوج می‌رساند تا برای احتمال از سرگیری جنگ با ایران پس از بازگشت ترامپ از چین آماده شود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایسنا : با قیمت قطعی خودرو باید خداحافظی کنید،چون تو جدیدترین طرح فروش ایران‌خودرو و سایپا،خریداران باید نیمی از مبلغ خودرو رو امروز بپردازن بدون اینکه بدونن در زمان تحویل چه قیمتی در انتظارشونه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337213
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337213_1778787263.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فدراسیون فوتبال برزیل قرارداد کارلو آنچلوتی، سرمربی تیم ملی این کشور، را تا پایان جام جهانی ۲۰۳۰ تمدید کرد.
+
+🔹آنچلوتی ۶۶ ساله که اردیبهشت ۱۴۰۴ پس از جدایی از رئال مادرید هدایت برزیل را بر عهده گرفت، تمدید قراردادش را در ویدیویی که فدراسیون فوتبال برزیل منتشر کرد، تایید کرد.
+
+🔹او گفت: «یک سال پیش به برزیل آمدم و از همان لحظه اول فهمیدم فوتبال برای این کشور چه معنایی دارد. ما می‌خواهیم تیم ملی برزیل را دوباره به بالاترین سطح فوتبال جهان برگردانیم.»
+
+🔹قرار است آنچلوتی دوشنبه فهرست نهایی تیم ملی برزیل برای جام جهانی را اعلام کند.
+
+🔹سمیر شعود، رییس فدراسیون فوتبال برزیل، تمدید قرارداد آنچلوتی را «روزی تاریخی» برای فوتبال این کشور توصیف کرد و گفت این تصمیم بخشی از برنامه برزیل برای ساخت تیمی «مدرن و رقابتی» است.
+
+🔹برزیل با هدایت آنچلوتی در ۱۰ مسابقه به پنج پیروزی، سه شکست و دو تساوی رسیده است. این تیم در جام جهانی ۲۰۲۶ با اسکاتلند، مراکش و هائیتی هم‌گروه خواهد بود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337212
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337212" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: شمارش معکوس برای آغاز جنگی دیگر
+@iranintlTV
+</div>
+
+## ManotoTV — post 105463
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105463_1778787264.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت برای زنده نگه داشتن پدرش حتی کپسول اکسیژن هم پیدا نمی‌شد…
+و بیمارستان، با اون حال وخیم، مرخصش کرد چون تخت لازم داشت.
+</div>
+
+## FarsiVOA — post 217768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حمله گسترده روسیه به اوکراین و زنگ خطر ناتو در رزمایش سوئد
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸همزمان با دیدار روسای جمهور آمریکا و چین در پکن، رهبران ۲۶ کشور روز پنجشنبه با انتشار بیانیه‌ای بار دیگر خواستار بازگشت وضعیت عادی دریانوردی در تنگه هرمز شدند. 🔸این بیانیه توسط کشورهایی مانند بریتانیا، فرانسه، بحرین، کانادا، آلمان، ژاپن، قطر و کره جنوبی…
+</div>
+
+## RadioFarda — post 157192
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157192_1778787266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸همزمان با دیدار روسای جمهور آمریکا و چین در پکن، رهبران ۲۶ کشور روز پنجشنبه با انتشار بیانیه‌ای بار دیگر خواستار بازگشت وضعیت عادی دریانوردی در تنگه هرمز شدند.
+
+🔸این بیانیه توسط کشورهایی مانند بریتانیا، فرانسه، بحرین، کانادا، آلمان، ژاپن، قطر و کره جنوبی صادر شده است.
+
+🔸رهبران این کشورها در بیانیه خود بر «تعهد خود به استفاده از ظرفیت‌های جمعی دیپلماتیک، اقتصادی و نظامی برای حمایت از آزادی ناوبری در تنگه هرمز» تأکید کردند.
+
+🔸در این بیانیه آمده است: «ناوبری باید مطابق با مفاد کنوانسیون حقوق دریاهای سازمان ملل متحد (UNCLOS) و قوانین بین‌المللی آزاد باشد.»
+
+@RadioFarda
+</div>
+
+## manototv — post 105463
+
+<div align="center">
+  <a href="telegram/content/manototv_105463_1778787266.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت برای زنده نگه داشتن پدرش حتی کپسول اکسیژن هم پیدا نمی‌شد…
+و بیمارستان، با اون حال وخیم، مرخصش کرد چون تخت لازم داشت.
+</div>
+
+## alonews — post 120026
+
+<div align="center">
+  <a href="telegram/content/alonews_120026_1778787268.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژیرها در کریات شمونه و اطراف آن به دلیل شلیک یک رگبار راکتی حزب‌الله از لبنان به صدا درآمده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120025
+
+<div align="center">
+  <a href="telegram/content/alonews_120025_1778787268.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : در واقع، منطقه داره به بلوک اضافه می‌شه، ولی ما ورق رو برگردوندیم 
+🔴 رژیم وحشت تو ایران از همیشه ضعیف‌تر شده و دولت اسرائیل از همیشه قوی‌تره 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120024
+
+<div align="center">
+  <a href="telegram/content/alonews_120024_1778787268.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : در واقع، منطقه داره به بلوک اضافه می‌شه، ولی ما ورق رو برگردوندیم
+
+
+🔴 رژیم وحشت تو ایران از همیشه ضعیف‌تر شده و دولت اسرائیل از همیشه قوی‌تره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120023
+
+<div align="center">
+  <a href="telegram/content/alonews_120023_1778787270.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارفعان نبیان ، جوان ۲۶ ساله اهل اصفهان، در جریان اعتراضات ضدحکومتی بازداشت شد.
+
+
+🔴خانواده‌اش بیش از دو ماه است که هیچ خبری از او ندارند، اجازه ملاقات به آنها داده نشده و او از حق دسترسی به وکیل محروم بوده است.
+
+
+🔴رژیم او را به اتهاماتی مانند محاربه (دشمنی با خدا) محکوم کرده که مجازات آن اعدام است.
+
+
+🔴گزارش‌ها حاکی از آن است که حکم اعدام او صادر شده و خطر اجرای آن با طناب دار بسیار جدی است
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 22:54
 ---
 
