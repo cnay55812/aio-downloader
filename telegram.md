@@ -7,6 +7,60 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 00:44
+---
+
+## WithYashar — post 11248
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11248_1778793262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ترامپ به دلیل مرگ برادر بزرگترش که بر اثر نوشیدن الکل جانش را از دست داد ،مشروب نمیخوره ،ولی اینجا جرعه‌ای از آن را مینوشه و به نشانه احترام به رئیس جمهور شی جین پینگ
+‏ولی داشت بالا می‌آورد
+@withyashar
+</div>
+
+## IranIntlTV — post 337220
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337220_1778793263.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اف‌بی‌آی اعلام کرد برای دریافت اطلاعات درباره مونیکا ویت، مامور سابق ضدجاسوسی آمریکا که به ایران پناهنده شده، ۲۰۰ هزار دلار جایزه تعیین کرده است.
+
+او متهم است اطلاعات محرمانه را در اختیار تهران قرار داده و از ۱۳ سال پیش در ایران زندگی می‌کند.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 217775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺مارکو روبیو: واشنگتن از پکن برای حل بحران جمهوری اسلامی درخواست کمک نکرده است
+
+◾️مارکو روبیو، وزیر خارجه ایالات متحده، روز پنجشنبه ۲۴ اردیبهشت گفت دونالد ترامپ، رئیس جمهوری آمریکا، و شی جین‌پینگ، رئیس جمهوری چین، در دیدار خود در پکن درباره عملیات نظامی علیه جمهوری اسلامی، تنگه هرمز، و مسائل امنیتی خاورمیانه گفت‌وگو کرده‌اند، و هر دو طرف بر مخالفت با «نظامی‌سازی» تنگه هرمز تأکید کرده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/marco-rubio-nbc-interview-china-iran-hormuz-strait/8150078.html
+@FarsiVOA
+</div>
+
+## alonews — post 120049
+
+<div align="center">
+  <a href="telegram/content/alonews_120049_1778793264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری وایرال شده از گلشیفته فراهانی و امانوئیل مکرون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 00:35
 ---
 
