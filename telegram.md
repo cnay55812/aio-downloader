@@ -7,6 +7,58 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 01:14
+---
+
+## VahidOOnLine — post 240192
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240192_1778795088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد فرماندهی مرکزی ارتش آمریکا، سنتکام، پنجشنبه ۲۴ اردیبهشت در اکس با انتشار تصویری اعلام کرد نیروهای تفنگدار دریایی آمریکا در جریان تمرین‌های نظامی از بالگرد «سی هاوک» بر عرشه ناو «یو‌اس‌اس تریپولی» عملیات فرود انجام داده‌اند.
+سنتکام اعلام کرد ناو «تریپولی» یکی از بیش از ۲۰ ناو جنگی آمریکایی است که در محاصره دریایی جمهوری اسلامی مشارکت دارند. این نهاد همچنین اعلام کرد از زمان آغاز این محاصره، نیروهای آمریکایی مسیر ۷۲ کشتی تجاری را تغییر داده و چهار شناور را از کار انداخته‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranianMinds — post 20154
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی شما :
+
+اگر شیر و خورشید وصل نمیشه براتون، طبق راهنمای زیر عمل کنید.
+
+وارد بخش Options اپلیکیشن بشید، گزینه‌ی More Options رو انتخاب کنید و در قسمت CDN Edge IPs، آی‌پی زیر و در قسمت CDN SNI Hostname، نام دامنه زیر رو وارد کنید بعد OK رو بزنید.
+
+CDN Edge IPs: 151.101.192.223
+CDN SNI Hostname: python.org
+
+سپس به صفحه ی اصلی برگردید و START رو بزنید
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## IranianMinds — post 20152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب ویو ها بهتر شده
+بعضیاتون برگشتید
+
+امیدوارم بزودی همه برگردن
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 01:07
 ---
 
