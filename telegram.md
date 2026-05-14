@@ -7,6 +7,159 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 20:35
+---
+
+## FoxNewsTwitter — post 341744
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341744_1778778307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Vice President JD Vance reveals his reaction when President Trump asked him to oversee taking on America's fraud problem:
+
+"When the president of the United States said, 'JD, we have got a fraud problem and I want you to tackle it.' I was so proud and so happy to be able to do it, because I realized that fraud isn't just about saving money. It's not just about protecting taxpayers. It's about protecting you."
+</div>
+
+## FoxNewsTwitter — post 341743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"So when you make campaign statements, those aren't true? You're not being honest with your voters? ...What you said to the voters is not real. Doesn't count."
+
+Rep. Jim Jordan hammers Fairfax County Commonwealth's Attorney Stephen Descano over the removal of campaign promises from his website about taking “immigration consequences” into account while handling cases.
+
+Jordan blasts the prosecutor after an illegal immigrant with a lengthy criminal history was released by police and allegedly killed a man in his home a day later.
+</div>
+
+## DW_Farsi — post 124708
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124708_1778778308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 غریب‌آبادی در نشست بریکس: امارات یک متجاوز است
+ 
+در اجلاس وزرای خارجه کشورهای عضو بریکس در دهلی‌نو، کاظم غریب‌آبادی، معاون وزیر خارجه ایران اعلام کرد امارات در "تسهیل اقدامات نظامی علیه ایران" نقش داشته و این کشور نمی‌تواند خود را در جایگاه قربانی معرفی کند.
+ 
+او همچنین با استناد به قطعنامه ۱۹۷۴ مجمع عمومی سازمان ملل گفت: «کشورهایی که به متجاوز کمک کنند نیز در چارچوب حقوق بین‌الملل مسئول شناخته می‌شوند.»
+ 
+به گفته غریب‌آبادی ایران پیش از آغاز درگیری‌ها دست‌کم "بیش از ۱۲۰ یادداشت رسمی دیپلماتیک" به شورای امنیت ارسال کرده و "بیش از ۵۰۰ صفحه سند و مدرک" در این زمینه ارائه داده است.
+ 
+او همچنین مدعی شد "بیش از ۱۳۰ هزار هدف غیرنظامی" و "حدود ۴ هزار کشته غیرنظامی" در جریان حملات علیه ایران ثبت شده است.
+ 
+معاون وزیر خارجه ایران یادآور شد تهران پیش از هرگونه درگیری، به کشورهای منطقه از جمله امارات هشدار داده و اعلام کرده بود در صورت همکاری با طرف‌های متخاصم، اقدامات دفاعی انجام خواهد داد.
+ 
+@dw_farsi
+</div>
+
+## RadioFarda — post 157189
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157189" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا عمومی شدن سفر نتانیاهو به امارات، برای اسرائیل مهم است؟ گفت‌وگو با حبیب حسینی‌فرد
+
+🔸آیا بنیامین نتانیاهو نخست‌وزیر اسرائیل در میانه جنگ با ایران به امارات متحده عربی سفر کرده است؟ پاسخ دفتر نخست‌وزیر اسرائیل به این پرسش مثبت است اما وزارت خارجه امارات متحده عربی در بیانیه‌ای ادعای دفتر بنیامین نتانیاهو، در این زمینه را تکذیب کرده است. دفتر نخست‌وزیر اسرائیل با اعلام خبر سفر گفته بود دیدار به یک «پیشرفت تاریخی» در روابط میان دو کشور منجر شده است. اما ابوظبی با تکذیب آن می‌گوید روابط امارات با اسرائیل «علنی» است و «بر پایه توافقات غیرشفاف یا غیررسمی بنا نشده است». خبر پیرامون این سفر و تکذیب آن در میانه گزارش‌هایی منتشر شده که از حمله تلافی‌جویانه امارات متحده عربی به ایران و همچنین استفاده این کشور از سامانه ضدموشکی گنبد آهنین اسرائیل مورد توجه قرار گرفته است. ارزیابی حبیب حسینی‌فرد تحلیلگر امور بین‌الملل را در آلمان درباره این تحولات بشنوید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20141
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20141_1778778309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+:( موضوع امیدوار بودن یا نبودن نیست. وقتی که قدرت تصمیم‌گیری در دست دیگران است، وقتی که ما نمی‌توانیم در تصمیم‌گیری آنها دخالت کنیم، تنها کاری که می‌توان انجام داد، تحمل کردن است.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ده‌هزار تا عکس داره یکی از یکی زیباتر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریدم=)))))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️  
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍       
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 
+💳تسویه حساب دلاری سریع 💊بیمه شرط میکس 
+⚠️فروش شرط 
+🔔ویرایش شرط                    
+3️⃣
+2️⃣ 
+🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389454
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389454_1778778310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x ✖️ 👍دارای مجوز رسمی Gambling Judge سوئد👍     💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر💳تسویه حساب دلاری سریع💊بیمه شرط میکس⚠️فروش شرط🔔ویرایش شرط                    3️⃣2️⃣🎁20%هدیه واریز از طریق ارز و ووچر┅━━━━━━━━━━━🎁 10%برگشت باخت به صورت روزانه 🎁 10%برگشت باخت به صورت هفتگی 🎁10%برگشت باخت به صورت ماهانه💻ادرس ورود به سایت:https://bet120x.com/fa/?btag=971470➖➖➖➖➖   👈 آموزش واریز و برداشت دلاری👉🔪کانال اطلاع رسانی:👇✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
+
+## alonews — post 119986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست: چین از جنگ آمریکا علیه ایران برای تقویت روابط با کشورهایی مانند تایلند، استرالیا و فیلیپین، با ارائه سوخت و فناوری سبز، استفاده می‌کند، آن هم در زمانی که به نظر می‌رسد دولت ترامپ علاقه کمتری به رهبری تلاش‌های بین‌المللی برای مقابله با بحران جهانی انرژی دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو، وزیر امور خارجه آمریکا : ترامپ از رئیس جمهور چین کمکی نخواست، آمریکا به کمک چین نیازی نداره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119984
+
+<div align="center">
+  <a href="telegram/content/alonews_119984_1778778310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله دو سرباز اسرائیلی رو که داشتن فرار میکردن هدف گرفت و با پهپاد کُشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 20:24
 ---
 
