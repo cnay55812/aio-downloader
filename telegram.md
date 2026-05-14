@@ -7,6 +7,18 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 03:53
+---
+
+## FarsiVOA — post 217678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تازه‌ترین مواضع قانون‌گذاران آمریکایی در کنگره
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 03:49
 ---
 
