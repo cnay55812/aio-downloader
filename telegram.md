@@ -7,6 +7,246 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 22:23
+---
+
+## kianmeli1 — post 87402
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87402_1778784836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گزارش خبرگزاری AXIOS، مقامات اسرائیلی می‌گویند که در طول این آخر هفته، اسرائیل در بالاترین سطح آمادگی قرار خواهد گرفت، زیرا این کشور منتظر تصمیم رئیس جمهور ترامپ در مورد از سرگیری جنگ علیه ایران است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337208
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337208" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | پنجشنبه ۲۴ اردیبهشت
+@iranintlTV
+</div>
+
+## FarsiVOA — post 217761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش فریبا مودت درباره جزئیات روز نخست دیدار پرزیدنت ترامپ با رئیس جمهوری چین
+</div>
+
+## FarsiVOA — post 217760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شکریا برادوست در برنامه تفسیر خبر: تمرکز بر ملی‌گرایی در چین افزایش یافته است
+</div>
+
+## FarsiVOA — post 217759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: رئیس جمهوری چین گفته که به رژیم ایران تجهیزات نظامی نخواهد داد
+
+◾️پرزیدنت ترامپ می‌گوید که شی جین‌پینگ، رئیس‌ جمهوری چین، متعهد شده است پس از مذاکرات سطح بالای دو رهبر، ارسال تجهیزات نظامی برای رژیم ایران را متوقف کند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-us-trump-china-chi-weapon-hannity-/8150025.html?withmediaplayer=1
+</div>
+
+## FarsiVOA — post 217758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺علی فالح الزیدی نخست‌وزیر جدید عراق شد
+
+▪️پارلمان عراق روز پنجشنبه ۲۴ اردیبهشت، به دولت جدید این کشور به ریاست علی فالح الزیدی و ۱۴ وزیر کابینه او رای اعتماد داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iraq-new-prime-minister-ali-alfateh-alzeidi-iran/8150045.html/?nocach=1
+</div>
+
+## FarsiVOA — post 217757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تعیین پاداش ۱۵ میلیون دلاری برای اطلاعات درباره شبکه‌‌های مالی سپاه پاسداران
+
+◾️وزارت امور خارجه ایالات متحده آمریکا روز پنجشنبه ۲۴ اردیبهشت، با انتشار بیانیه‌ای اعلام کرد که در چارچوب برنامه «پاداش برای عدالت» این وزارتخانه «۱۵ میلیون دلار پاداش برای اطلاعات درباره شبکه‌‌های مالی سپاه پاسداران در نظر گرفته شده است.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/million-bounty-iran-irgc-award/8150041.html?withmediaplayer=1
+</div>
+
+## IranianMinds — post 20145
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20145_1778784837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کارشناس کانال ۱۴ اسرائیل:
+
+رژیم ایران در حال انجام تماس‌هایی به صورت مخفی و مستقیم با دولت ترامپ هست و به شدت احتیاج به پول داره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20144
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20144_1778784838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو:
+
+ما اورشلیم را برای همیشه تحت حاکمیت اسرائیل حفظ خواهیم کرد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🖊وایر دیویس، خبرنگار امور خاورمیانه
+در,گزارش از عصاعصه، کرانه غربی
+
+🔻محمد عصاعصه تازه پس از خاکسپاری حسین، پدر ۸۰ ساله‌اش، به خانه بازگشته بود که چند کودک دوان‌دوان وارد خانه شدند و فریاد زدند: «شهرک‌نشین‌ها دارند قبر را می‌کنند.»
+
+در روستای کوچک عصاعصه، نزدیک جنین در کرانه غربی، روستایی که خانواده نام خود را از آن گرفته است، حسین پیش از مرگش به دلایل طبیعی، چهره‌ای شناخته‌شده و بسیار محترم بود.
+
+طبق شعائر اسلامی، این مرد سالخورده، که پیش‌تر تاجر دام بود و ۱۰ فرزند داشت، در قبری ساده در گورستانی روی تپه‌ای کوچک، در سوی دیگر روستا و دور از خانه، به خاک سپرده شد.
+
+محمد می‌گوید برای اطمینان از این‌ که مشکلی در روند خاکسپاری پیش نیاید، پیشاپیش از یک پایگاه نظامی اسرائیل در نزدیکی محل، برای برگزاری مراسم خاکسپاری اجازه گرفته بود.
+
+اما کمتر از نیم ساعت بعد، محمد و برادرانش بار دیگر به ورودی گورستان بازگشتند و با صحنه‌ای هولناک روبه‌رو شدند.
+
+متن کامل خبر در لینک زیر:
+https://bbc.in/4tFB41J
+📷BBC Images/ Getty Images/ AFP via Getty Images
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389467
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389467_1778784840.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین ورژن خفت و خواری بچه‌شیعه:
+رزمایش گذاشتن، هلی‌کوپتر نداشتن، بنرشو چاپ کردن گذاشتن اون وسط.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120012
+
+<div align="center">
+  <a href="telegram/content/alonews_120012_1778784841.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نتانیاهو: دشمنان ما به دنبال نابودی همه ما هستند. همه ما.
+
+
+🔴 آنها بین راست و چپ، سکولار و مذهبی، یهودی و عرب تفاوتی قائل نمی‌شوند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه سرویس های Vip 
+⭕️
+
+
+✅ 1 گیگابایت 
+⬅️ 235/000 تومان
+
+✅ 3 گیگابایت 
+⬅️ 735/000 تومان
+
+استارلینک Vip 
+💫 
+🌟
+
+
+⭐️ 5 گیگابایت 
+⬅️ 1/150/000 تومان
+
+⭐️ 10 گیگابایت 
+⬅️ 2/350/000 تومان
+
+ویژگی های سرویس های Vip : 
+❤️‍🔥
+
+✅    متصل در تمامی دستگاه و اپراتور ها
+
+✅    مناسب استفاده روزمره در تمامی برنامه ها
+
+✅    دارای ساب برای اطلاع لحظه ای باقیمانده
+
+✅    تک لینک بدون نیاز به بروزرسانی های متعدد
+
+✉️ پشتیبانی و خرید:
+
+🔤 @safevpn_secureSupport
+
+🤖 خرید فوری از ربات:
+
+🔤 @SafeVPNXBot
+
+📢کانال اطلاع رسانی:
+
+🔤 @safevpn_suportt
+
+😍کانال رضایت :
+
+🔤 @safevpn_feedback
+
+╚═════════════════════════╝
+</div>
+
+## alonews — post 120010
+
+<div align="center">
+  <a href="telegram/content/alonews_120010_1778784842.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری ایسنا : با قیمت قطعی خودرو باید خداحافظی کنید،چون تو جدیدترین طرح فروش ایران‌خودرو و سایپا،خریداران باید نیمی از مبلغ خودرو رو امروز بپردازن بدون اینکه بدونن در زمان تحویل چه قیمتی در انتظارشونه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120009
+
+<div align="center">
+  <a href="telegram/content/alonews_120009_1778784843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل معتقد است که رئیس‌جمهور ترامپ پس از بازگشت از سفر به چین تصمیم خواهد گرفت که آیا عملیات نظامی علیه ایران را از سر بگیرد یا خیر، طبق گزارش کان نیوز.
+
+
+🔴 مقامات ارشد ارتش اسرائیل و فرماندهی مرکزی آمریکا (CENTCOM) در هفته گذشته درباره احتمال از سرگیری عملیات علیه ایران گفتگو کرده‌اند. بحث‌ها شامل امکان حملات هدفمند آمریکا به زیرساخت‌های سوخت و انرژی ایران بود که هدف آن فشار آوردن به تهران برای بازگشت به مذاکرات و مجبور کردن به امتیازدهی در برنامه هسته‌ای‌اش است.
+
+
+🔴 اسرائیل به واشنگتن اعلام کرده است که از از سرگیری عملیات نظامی علیه ایران حمایت می‌کند و معتقد است عملیات «شیر غران» خیلی زود پایان یافته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 22:15
 ---
 
