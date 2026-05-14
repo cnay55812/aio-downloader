@@ -7,6 +7,81 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 00:04
+---
+
+## VahidOOnLine — post 240185
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240185_1778790874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه خبری آی۲۴ نیوز گزارش داد امارات متحده عربی پس از انتشار خبر سفر محرمانه بنیامین نتانیاهو به ابوظبی، اعتراض شدید دیپلماتیک خود را به اسرائیل منتقل کرده است.
+بر اساس این گزارش، این پیام اعتراضی از سوی محمد آل خاجه، سفیر امارات متحده عربی در اسرائیل، به مقام‌های شورای امنیت ملی اسرائیل در دفتر نخست‌وزیری این کشور منتقل شده است.
+یک منبع آگاه به آی۲۴ نیوز گفت: «اماراتی‌ها بسیار خشمگین بودند. این نخستین بار نیست که اطلاعات حساس از دفتر نخست‌وزیری اسرائیل درز می‌کند. به همین دلیل است که نتانیاهو سال‌ها به امارات متحده عربی سفر نکرده بود.»
+آی۲۴ نیوز همچنین نوشت امارات متحده عربی با وجود گسترش همکاری‌های امنیتی با اسرائیل، از جمله استقرار سامانه «گنبد آهنین» و سفر مقام‌های ارشد امنیتی اسرائیل به ابوظبی، همچنان تلاش می‌کند روابط خود با اسرائیل را کم‌حاشیه نگه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## kianmeli1 — post 87410
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87410_1778790875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه اعتماد مدعی شد: اینترنت بین الملل خرداد ماه وصل می‌ شود
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87409
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87409_1778790876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس کمیسیون امنیت ملی مجلس، از پیشنهاد تعیین جایزه ۵۰ میلیون یورویی برای کشتن دونالد ترامپ، بنیامین نتانیاهو و فرمانده سنتکام خبر داده است.
+https://t.me/kianmeli1
+</div>
+
+## Dirty_Kids — post 389469
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389469_1778790877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چون دل‌تون برای سخنگوی اسکل الانبیا تنگ شده میدونم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389468
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389468_1778790877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اره داداش، امریکا تایوان رو میده به چین و ایران رو ازش میگیره.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120044
+
+<div align="center">
+  <a href="telegram/content/alonews_120044_1778790878.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام: از آغاز محاصره دریایی بنادر ایران، 72 کشتی تجاری را منحرف و 4 کشتی را از کار انداختیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 23:55
 ---
 
