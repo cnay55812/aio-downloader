@@ -7,6 +7,162 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 22:36
+---
+
+## VahidOOnLine — post 240370
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240370_1778871978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال که از مشهد پیام داده می‌گوید برای کار روی پایان‌نامه خود ناچار به تهیه اینترنت پرسرعت شده که با احتساب مالیات حدود ۲ میلیون و ۱۷۰ هزار تومان هزینه داشته است. او می‌گوید برای چیزی که «حقمان است» هزینه سنگین پرداخت می‌کنند، اما دسترسی و کیفیت خدمات پاسخگوی نیاز او نیست. این پیام با هوش مصنوعی خوانده شده است.
+
+بازخوانی این پیام و ساخت تصویر برای آن با هوش مصنوعی انجام گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11329
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11329_1778871981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ تو تروث سوشال:
+
+ایران ایالت 243 آمریکاست🤣
+
+@withyashar
+</div>
+
+## WithYashar — post 11328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+l وزارت خارجه آمریکا اعلام کرد آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز دیگر تمدید شد.
+@withyashar
+</div>
+
+## WithYashar — post 11327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## WithYashar — post 11326
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11326_1778871982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## VahidOnline — post 75488
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75488_1778871983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور، عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است.
+عزالدین حداد، از فرماندهان ارشد گردان‌های عزالدین قسام، شاخه نظامی حماس است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 337374
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337374_1778871984.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال که از مشهد پیام داده می‌گوید برای کار روی پایان‌نامه خود ناچار به تهیه اینترنت پرسرعت شده که با احتساب مالیات حدود ۲ میلیون و ۱۷۰ هزار تومان هزینه داشته است. او می‌گوید برای چیزی که «حقمان است» هزینه سنگین پرداخت می‌کنند، اما دسترسی و کیفیت خدمات پاسخگوی نیاز او نیست. این پیام با هوش مصنوعی خوانده شده است.
+
+بازخوانی این پیام و ساخت تصویر برای آن با هوش مصنوعی انجام گرفته است.
+</div>
+
+## FarsiVOA — post 217845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل: در یک هفته ۶۰ تروریست حزب‌الله کشته شدند
+
+◾️ارتش اسرائیل می‌گوید در طول یک هفته حدود ۶۰ تروریست حزب‌الله کشته شدند و عملیات اسرائیل در جنوب لبنان ادامه دارد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-israel-hezbollah-lebanon-washington/8150375.html
+</div>
+
+## FarsiVOA — post 217844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌و‌گو با دامون محمدی، تحلیل‌گر سیاسی، لفاظی‌های بی‌پایان جمهوری اسلامی - از ادعای پس گرفتن بحرین تا وضع عوارض بر فیبر نوری عبوری از تنگه هرمز - را مورد گفت‌و‌گو قرار دادیم.
+</div>
+
+## DW_Farsi — post 124741
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124741_1778871987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ۲۰ ایرانی و ۱۱ پاکستانی گرفتار در کشتی‌های توقیف‌شده به کشورشان بازگشتند
+
+در حالی که مذاکرات میان جمهوری اسلامی و ایالات متحده در بن‌بست است، پاکستان از بازگرداندن ملوانان ایرانی و پاکستانی که در کشتی‌های توقیف‌شده از سوی آمریکا حضور داشتند، خبر داده است.
+
+دریانوردان ایرانی از طریق پاکستان به ایران منتقل خواهند شد.
+
+محمد اسحاق دار، وزیر خارجه پاکستان با اعلام این خبر و با انتشار پیامی در شبکه اجتماعی ایکس نوشت: «۱۱ شهروند پاکستانی و ۲۰ شهروند ایرانی از سنگاپور به بانکوک رسیده‌اند و هم‌اکنون سوار پروازی هستند که امشب به اسلام‌آباد خواهد رسید. سپس بازگشت شهروندان ایران تسهیل خواهد شد.»
+
+وزیر خارجه پاکستان با بیان اینکه این ۲۰ ایرانی و ۱۱ پاکستانی سوار بر کشتی‌هایی بوده‌اند که در آب‌های آزاد توسط ایالات متحده توقیف شده بود، افزود: «تمام افراد در سلامت کامل و با روحیه خوب هستند.»
+
+پاکستان پیش‌تر در اوایل ماه مه نیز از بازگرداندن ملوانان ایرانی خبر داده بود.
+@dw_farsi
+</div>
+
+## IranianMinds — post 20208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شباهتو
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت خارجه آمریکا می‌گوید آتش‌بس میان لبنان و اسرائیل به مدت ۴۵ روز تمدید شده است
+
+تامی پیگوت، سخنگوی وزارت خارجه آمریکا، می‌گوید تمدید آتش‌بس میان اسرائیل و لبنان پس از دو روز مذاکرات «بسیار سازنده» با میانجیگری ایالات متحده مورد توافق قرار گرفته است.
+
+آقای پیگوت گفت که مذاکرات «راهبرد سیاسی» در تاریخ ۲ و ۳ ژوئن از سر گرفته خواهد شد، در حالی که «راهبرد امنیتی» در ۲۹ مه با حضور هیئت‌های نظامی اسرائیل و لبنان در پنتاگون آغاز خواهد شد.
+
+او در پستی در شبکه اجتماعی ایکس نوشت: «ما امیدواریم که این مذاکرات به پیشبرد صلح پایدار بین دو کشور، به رسمیت شناختن کامل حاکمیت و تمامیت ارضی یکدیگر و ایجاد امنیت واقعی در امتداد مرز مشترک آنها منجر شود.»
+
+https://bbc.in/3RHhJzE
+@BBCPersian
+</div>
+
+## alonews — post 120268
+
+<div align="center">
+  <a href="telegram/content/alonews_120268_1778871987.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت نفت ۱۰۹.۴۳ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 22:27
 ---
 
