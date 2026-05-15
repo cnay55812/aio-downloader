@@ -7,6 +7,26 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 04:04
+---
+
+## Persian_Trend_Official — post 14172
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14172_1778805268.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢اسماعیل بقایی
+
+«کسی که در خفا خیانت کند، در برابر افکار عمومی رسوا خواهد شد»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 03:53
 ---
 
