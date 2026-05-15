@@ -7,6 +7,49 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 01:23
+---
+
+## WithYashar — post 11354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز به نقل از مقامات آمریکا:
+
+دستیاران ترامپ برنامه‌هایی رو برای بازگشت به حملات نظامی به ایران آماده کردن، اگر او تصمیم بگیره با بمباران بیشتر از بن بست خارج بشه.
+
+از جمله گزینه‌ها، اعزام نیروهای ویژه به ایران برای هدف قرار دادن مواد هسته‌ای مدفون شده است و ممکنه از نیروهای ویژه برای کنترل جزیره خارک استفاده بشه.
+@withyashar
+</div>
+
+## Shin_Persian — post 6023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 21:46:56 UTC
+
+Heavy #USAF 🇺🇸 jet activity over Erbil
+#KRI, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت سنگین جت‌های نیروی هوایی ایالات متحده (USAF) 🇺🇸 بر فراز اربیل
+#KRI، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14223
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14223_1778882037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا احمدی نژاد چه شد ؟!
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 01:14
 ---
 
