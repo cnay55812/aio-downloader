@@ -7,6 +7,146 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 00:35
+---
+
+## VahidOOnLine — post 240381
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240381_1778879101.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال از شرایط سخت معیشتی خود می‌گوید. او اشاره می‌کند که همسر و بچه‌اش را به خانه مادرخانمش فرستاده و خودش تنها در خانه «نان خشک» می‌خورد. او از کار اخراج شده است. صدای او با هوش مصنوعی بازخوانی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از ۲ مقام امنیتی:
+
+آمریکا و اسرائیل در حال آماده‌سازی گسترده برای احتمال ازسرگیری حملات علیه جمهوری اسلامی هستند،
+
+این حمله ممکن است از هفته آینده آغاز شود
+@withyashar
+</div>
+
+## WithYashar — post 11344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه مسیج درست اگه تو دایرکت دیدی به من بگو ! انگار‌من کشیش کلیسام ! یا کلانتر محل !
+</div>
+
+## WithYashar — post 11343
+
+
+
+
+## IranIntlTV — post 337391
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337391_1778879103.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال از شرایط سخت معیشتی خود می‌گوید. او اشاره می‌کند که همسر و بچه‌اش را به خانه مادرخانمش فرستاده و خودش تنها در خانه «نان خشک» می‌خورد. او از کار اخراج شده است. صدای او با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## Shin_Persian — post 6022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Fri, 15 May 2026 19:27:11 UTC
+
+ROYAL AIR FORCE - MIDDLE EAST - ORBAT - 15th May 2026
+As of this evening, I believe the RAF has the following aircraft still deployed in the Middle East:
+
+RAF Akrotiri, Cyprus:
+F-35B ZM142 #43C818 (since 06/02)
+F-35B ZM156 #43C826 (10/03)
+F-35B ZM159 #43C829 (06/02)
+F-35B ZM169 #43C833 (06/02)
+Typhoon ZK322 #43C6D5 (26/01)
+Typhoon ZK334 #43CAE8 (26/01)
+Typhoon ZK335 #43C746 (24/04)
+Typhoon ZK343 #43CAE3 (24/04)
+Typhoon ZK352 #43C77B (24/04)
+Typhoon ZK353 #43C77C (24/04)
+Typhoon ZK354 #43C77D (20/01)
+Typhoon ZK366 #43C794 (06/02)
+Typhoon ZK370 #43C798 (28/10/25)
+Voyager KC.3 ZZ334 #43C6F7
+Voyager KC.2 ZZ343 #43C700
+Protector RG.1 PR010 #43C972
+
+Al-Udeid Airbase (or another site), Qatar:
+Typhoon ZK347 #43C709 (as of 06/03)
+Typhoon ZK348 #43C70A (06/03)
+Typhoon ZK350 #43C70C (23/01)
+Typhoon ZK371 #43C799 (06/03)
+Typhoon ZK373 #43C79B (23/01)
+Typhoon ZK374 #43C79C (06/03)
+Typhoon ZK432 #43C7A9 (23/01)
+Typhoon ???? (x1 of the ones listed as Akrotiri should actually be here)
+
+Returned to the UK today (15/05):
+Voyager KC.2 ZZ338 #43C6FB
+Voyager KC.2 ZZ331 #43C6F4
+F-35B ZM141 #43C817
+F-35B ZM144 #43C81A
+F-35B ZM145 #43C81B
+F-35B ZM150 #43C820
+F-35B ZM157 #43C827
+F-35B ZM164 #43C82E
+F-35B ZM166 #43C821
+F-35B ZM168 #43C832
+
+Other recent returns to the UK:
+Typhoon ZK305 #43C60D (29/04)
+Typhoon ZK326 #43C6D9 (29/04)
+Typhoon ZK359 #43C782 (30/04)
+Typhoon ZK361 #43C784 (07/05)
+Shadow R.1 ZZ419 #43C2B5 (14/04)
+Shadow R.1 ZZ504 #43C61D (30/04)
+
+Usual caveats apply, my data is based on public flight tracking information and collaboration with @ArmchairAdml & others from @MATA_osint and so is subject to change/corrections!
+https://www.raf.mod.uk/news/articles/sustained-at-range-raf-fighters-deliver-defensive-cover-over-the-red-sea/
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یک رهبر کتائب الحزب‌الله به اتهامات تروریستی در آمریکا محاکمه می‌شود؛ یار عراقی «قاسم سلیمانی» خارج از ایالات متحده دستگیر شد
+
+◾️وزارت دادگستری ایالات متحده روز جمعه ۲۵ اردیبهشت از آغاز محاکمه محمد‌باقر سعد داوود السعدی، تبعه عراقی و عضو ارشد کتائب حزب‌الله خبر داد و او را به همکاری با سازمان‌های تروریستی تحت حمایت رژیم ایران و هدایت حملات علیه شهروندان و منافع ایالات متحده متهم کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150492.html
+@FarsiVOA
+</div>
+
+## alonews — post 120288
+
+<div align="center">
+  <a href="telegram/content/alonews_120288_1778879106.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک تایمز: گزینه‌های ترامپ در ایران شامل نیروهای ویژه زمینی برای کنترل اورانیوم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 00:25
 ---
 
