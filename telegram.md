@@ -7,6 +7,227 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 20:44
+---
+
+## VahidOOnLine — post 240354
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240354_1778865275.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ رئیس جمهوری ایالات متحده پیش از ترک چین به محل اقامت رهبر حزب کمونیست رفت و از آنجا دیدن کرد
+
+محل اقامت رهبر حزب کمونیست معمولاً در یک مجموعه تاریخی و دولتی با معماری رسمی و کلاسیک قرار دارد که در دوره‌های گذشته ساخته شده و در طول سال‌ها بازسازی و تقویت شده است؛ این ساختمان‌ها اغلب قدمتی چند ده‌ساله دارند و با ترکیبی از طراحی سنتی و امکانات مدرن، هم‌زمان کاربری اداری و امنیتی دارند و به‌عنوان یکی از مهم‌ترین مراکز تصمیم‌گیری سیاسی کشور شناخته می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240353
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240353_1778865276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا سپهوند، عضو کمیسیون انرژی مجلس گفت: «روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و چون در کوتاه‌مدت امکان افزایش تولید وجود ندارد، باید مدیریت مصرف سوخت را جدی گرفت.»
+
+او ادامه داد: «تولید روزانه بنزین در ایران ۱۰۵ میلیون لیتر و مصرف ۱۳۵ میلیون لیتر است.»
+
+این نماینده مجلس افزود: «بخشی از تولید بنزین به دلیل بمباران در جنگ کاهش یافته و همچنین واردات کمتر شده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11304
+
+
+
+
+## WithYashar — post 11303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۳ اسرائیل:
+
+سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
+@withyashar
+</div>
+
+## WithYashar — post 11302
+
+
+
+
+## WithYashar — post 11301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار بیا مثل سیاه جامگان یا حسن صباح یه فرقه راه بنداز 😅
+</div>
+
+## IranIntlTV — post 337358
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337358_1778865277.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «من از کسی امتیاز درخواست نمی‌کنم، چون وقتی امتیاز بخواهی، باید خودت هم امتیاز بدهی و ما نیازی به این کار نداریم.»
+
+او افزود: «در عمل، نیروهای نظامی ایران را از بین بردیم. شاید هنوز کمی عملیات تکمیلی لازم باشد، چون حدود یک ماه پیش آتش‌بس اعلام کردیم. اما محاصره بسیار موثری ایجاد شد و هدف اصلی هم همین بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337357
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337357" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | جمعه ۲۵ شهریور
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337356
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337356_1778865279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا سپهوند، عضو کمیسیون انرژی مجلس گفت: «روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و چون در کوتاه‌مدت امکان افزایش تولید وجود ندارد، باید مدیریت مصرف سوخت را جدی گرفت.»
+
+او ادامه داد: «تولید روزانه بنزین در ایران ۱۰۵ میلیون لیتر و مصرف ۱۳۵ میلیون لیتر است.»
+
+این نماینده مجلس افزود: «بخشی از تولید بنزین به دلیل بمباران در جنگ کاهش یافته و همچنین واردات کمتر شده است.»
+https://iranintl.com/202605158254
+</div>
+
+## Shin_Persian — post 6017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 15 May 2026 17:04:22 UTC Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی ساکنان غزه از یک حمله هوایی برق‌آسا…
+</div>
+
+## Shin_Persian — post 6016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 17:04:22 UTC
+
+Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ساکنان غزه از یک حمله هوایی برق‌آسا به غرب غزه خبر می‌دهند که به احتمال بسیار زیاد یک ترور هدفمند است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 17:04:22 UTC
+
+Gazans report a blitz airstrike on western Gaza, highly likely a targeted assassination.
+
+فارسی
+
+ساکنان غزه از یک حمله هوایی برق‌آسا به غرب غزه خبر می‌دهند که به احتمال بسیار زیاد یک ترور هدفمند بوده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاوه فرنام، تهیه‌کننده سینما، که با فیلم «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی در فستیوال کن حضور دارد، در گفت‌وگو با صدای آمریکا از نقش و مسئولیت هنرمندان درباره مسائل اجتماعی صحبت کرد.
+</div>
+
+## RadioFarda — post 157233
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157233" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۲۵ اردیبهشت ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157232
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157232" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چگونه برای مقابله با شدت گرفتن «تنش آبی» آماده شویم؟ گفت‌وگو با نیک‌آهنگ کوثر
+
+🔸در هفته‌های اخیر خصوصا با آغاز بهار، بسیار از شهروندان ایرانی از میزان بارش باران در شهرهای خود، خصوصا در نقاطی مانند پایتخت که ماه‌هایی بسیار خشک را پشت سر گذاشته بود ابراز خشنودی می‌کردند و آن را دلیلی بر امیدواری نسبت به وضعیت ذخایر آب در ماه‌های پیش رو قلمداد می‌کردند. اما آن‌طور که عباس علی‌آبادی وزیر نیرو در ایران می‌گوید وضعیت آبی تهران چندان مناسب نیست و «توزیع نابرابر بارش باعث شده که ۱۰ استان با جمعیت بیش از ۳۵ میلیون نفر همچنان در شرایط زیرنرمال قرار داشته باشند». سال ۱۴۰۴ سالی بسیار نگران‌کننده برای وضعیت دخایر آب ایران بود و تهران به وضعیت «روز صفر آبی» بسیار نزدیک شده بود. حالا این هشدار وزیر نیرو یادآور شرایطی مشابه است که شهروندان باید برای آن آماده باشند. چه باید کرد؟ نیک‌آهنگ کوثر، زمین‌شناس و روزنامه‌نگار حوزه آب که ساکن آمریکاست، پاسخ می‌دهد.
+
+@RadioFarda
+</div>
+
+## alonews — post 120240
+
+<div align="center">
+  <a href="telegram/content/alonews_120240_1778865280.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آتش سوزی در تاسیسات گازی در ونزوئلا
+ 
+
+🔴رویترز از آتش‌سوزی در تاسیسات گازی تحت مدیریت شرکت PDVSA در دریاچه «ماراکایبو» در ونزوئلا خبر داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120236
+
+<div align="center">
+  <a href="telegram/content/alonews_120236_1778865280.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چندین حمله هوایی اسرائیل چند لحظه پیش یک آپارتمان در محله ریمال شهر غزه را هدف قرار داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120235
+
+<div align="center">
+  <a href="telegram/content/alonews_120235_1778865282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مرکل صدراعظم سابق آلمان: خروج آمریکا از ناتو به ضرر خود آمریکا است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120234
+
+<div align="center">
+  <a href="telegram/content/alonews_120234_1778865282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ چند دقیقه پیش از آلاسکا به سمت واشنگتن پرواز کرد. پس از توقف برای سوخت‌ گیری در انکوریج
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 20:34
 ---
 
