@@ -7,6 +7,41 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 01:14
+---
+
+## WithYashar — post 11353
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11353_1778881475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلد جدید مجله تایم: چگونه دیدار ترامپ و شی، نظم نوین جهانی را نشان داد
+@withyashar
+</div>
+
+## WithYashar — post 11352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ خیلی عجله داشته هیچ فیلمی عکسی از رسیدنش نیومده بیرون ! عجبیه
+</div>
+
+## Dirty_Kids — post 389528
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389528_1778881475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گفته دو مقام خاورمیانه‌ای، آمریکا و اسرائیل دارن آماده‌سازی خیلی گسترده‌ای انجام می‌دن. (بزرگ‌ترین سطح از وقتی که آتش‌بس برقرار شده)
+
+این آماده‌سازی‌ها انقدر جدیه که ممکنه از هفته آینده دوباره حملات شروع بشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 01:04
 ---
 
