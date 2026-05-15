@@ -7,6 +7,49 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 08:03
+---
+
+## FoxNewsTwitter — post 341762
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341762_1778819601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump says he and Chinese President Xi "feel very similar on Iran."
+
+"We want that to end. We don't want them to have a nuclear weapon. We want the straits open."
+</div>
+
+## FarsiVOA — post 217799
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217799_1778819602.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پیاده‌روی دونالد ترامپ و شی جین‌پینگ
+@FarsiVOA
+</div>
+
+## BBCPersian — post 281083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+شی جین‌پینگ در نخستین روز سفر دونالد ترامپ، که می‌تواند روابط میان این دو ابرقدرت رقیب را از نو تنظیم کند، استقبالی باشکوه از او ترتیب داد.
+
+گارد تشریفات نظامی در بیرون تالار بزرگ خلق برای استقبال ازآقای ترامپ صف کشیده بود. همراه با شلیک توپ و گروه موسیقی که سرود ملی آمریکا را می‌نواخت. رئیس‌جمهور آمریکا دو بار توقف کرد تا به دانش‌آموزانی که با پرچم‌های چین و آمریکا ابراز احساسات می‌کردند، سلام کند.
+
+او هنگام دست دادن با شی، به جلو خم شد و به نظر می‌رسید برای ابراز صمیمیت، دستش را روی بازوی او گذاشت. سپس میزبانش را با تمجید فراوان ستود.
+
+https://bbc.in/4eJjypq
+📷:‌Getty/ Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 07:53
 ---
 
