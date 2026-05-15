@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 17:34
+---
+
+## VahidOOnLine — post 240321
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240321_1778853870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیام ارسالی خود به ایران اینترنشنال با اشاره به افزایش شدید قیمت داروها گفت که هزینه گچ گرفتن پای شکسته‌اش ۹ میلیون تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240320
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240320_1778853872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس‌کل دادگستری خراسان جنوبی اعلام کرد یک وکیل دادگستری در بیرجند در جریان اختلاف خانوادگی جان باخته است.
+
+او گفت این وکیل زن پس از آن‌که همسرش با خودرو او را زیر گرفت، جان خود را از دست داد و پرونده این حادثه برای رسیدگی ویژه در دستگاه قضایی در حال بررسی است.
+
+به گفته این مقام قضایی، متهم خود را به قوه قضاییه معرفی کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## iaghapour — post 2612
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کل ریپازیتوری گیت هاب علیرضا که شامل X-UI و S-UI میشد بسته شده و هنوز دلیلش مشخص نیست.
+</div>
+
+## IranIntlTV — post 337331
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337331_1778853872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیام ارسالی خود به ایران اینترنشنال با اشاره به افزایش شدید قیمت داروها گفت که هزینه گچ گرفتن پای شکسته‌اش ۹ میلیون تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337330
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337330_1778853874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس‌کل دادگستری خراسان جنوبی اعلام کرد یک وکیل دادگستری در بیرجند در جریان اختلاف خانوادگی جان باخته است.
+
+او گفت این وکیل زن پس از آن‌که همسرش با خودرو او را زیر گرفت، جان خود را از دست داد و پرونده این حادثه برای رسیدگی ویژه در دستگاه قضایی در حال بررسی است.
+
+به گفته این مقام قضایی، متهم خود را به قوه قضاییه معرفی کرده است.
+https://iranintl.com/202605153493
+</div>
+
+## IranIntlTV — post 337329
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337329_1778853875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ پس از دیدار با رییس‌جمهوری چین گفت پکن و واشینگتن توافق دارند که ایران هرگز نباید به سلاح هسته‌ای دست پیدا کند و تنگه هرمز باید باز بماند. او همچنین تاکید کرد دو کشور مسائلی را حل‌وفصل کرده‌اند که دیگران قادر به حل آن نبودند.
+جزییات بیشتر با مریم رحمتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Dirty_Kids — post 389498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از پدرهای پویان مختاری هم پیدا شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389497
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389497_1778853876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلا تو یه لیگ دیگه‌ست :)))
+
+ترامپ در پاسخ به این سؤال که آیا درباره حملات سایبری علیه آمریکا با شی جین‌پینگ حرف زده یا نه:
+
+'آره، بهش گفتم. اونم شروع کرد درباره کارایی که ما تو چین کردیم حرف زدن.
+خب می‌دونی، هر کاری اونا بکنن ما هم می‌کنیم. ما هم حسابی ازشون جاسوسی می‌کنیم.
+بهش گفتم ما یه عالمه کارها علیه شما می‌کنیم که اصلاً خبر ندارین.'
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389496
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389496_1778853877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه یوتیوب تتلو :
+امیرخان درحالی که فقط یک ماه به شروع جام جهانی مونده، از تو زندان استارت تمرین‌هاش رو زده و میخواد عضو یه تیم ملی بشه تا تو این مسابقات شرکت کنه.
+
+خودشم داخل قوطی رنگ و بطریِ وایتکس، گچ و سیمان ریخته و داره ازشون به عنوان دمبل استفاده می‌کنه.
+ایشون تو یه فضای 1*1 داره تمرین میکنه و واسه صبحونه، ناهار و شام فقط عدسی و آب‌میوه میخوره!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120206
+
+<div align="center">
+  <a href="telegram/content/alonews_120206_1778853878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروهای دفاعی اسرائیل یک تمرین نظامی غافلگیرکننده در امتداد مرز اردن انجام دادند که هدف آن آزمایش آمادگی برای تهدیدات ناگهانی امنیتی بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 17:24
 ---
 
