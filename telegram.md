@@ -7,6 +7,181 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 20:54
+---
+
+## WithYashar — post 11310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده
+
+@withyashar
+</div>
+
+## WithYashar — post 11309
+
+
+
+
+## WithYashar — post 11308
+
+
+
+
+## WithYashar — post 11307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امریکا زمانی حمله میکنه که کسی منتظر نیس.
+</div>
+
+## WithYashar — post 11306
+
+
+
+
+## WithYashar — post 11305
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11305_1778865895.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 9137
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9137_1778865897.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱اسرائیل اعلام کرد که در نوار غزه یک حمله انجام داده که هدف آن عزالدین الحداد، رئیس شاخه نظامی حماس بوده است. اسرائیل او را یکی از طراحان حمله ۷ اکتبر معرفی کرده است.
+
+🇮🇱بنیامین نتانیاهو، نخست‌وزیر، و اسرائیل کاتس، وزیر دفاع، اعلام کردند که اسرائیل «به اقدامات خود علیه همه افراد دخیل ادامه خواهد داد».
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 90803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 13 اسرائیل: سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش اسراییل عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87412
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87412_1778865898.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش فرمانده حماس کشته شد
+‏
+نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Emanuel (Mannie) Fabian ✓ @manniefabian Fri, 15 May 2026 17:18:34 UTC A senior Israeli security official tells reporters that there are "initial indications" that Izz al-Din al-Haddad was killed in the airstrike in Gaza City a short while…
+</div>
+
+## Shin_Persian — post 6018
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Fri, 15 May 2026 17:18:34 UTC
+
+A senior Israeli security official tells reporters that there are "initial indications" that Izz al-Din al-Haddad was killed in the airstrike in Gaza City a short while ago.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+یک مقام ارشد امنیتی اسرائیل به خبرنگاران می‌گوید که «نشانه های اولیه» وجود دارد که نشان می‌دهد عزالدین الحداد در حمله هوایی اندکی پیش در شهر غزه کشته شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیامدهای بحران مزمن کمبود بنزین در ایران - گفت‌و‌گو با امید شکری، تحلیل‌گر سیاست خارجی و ژئوپولیتیک انرژی
+</div>
+
+## IranianMinds — post 20205
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20205_1778865899.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش فرمانده حماس کشته شد
+‏
+نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است
+
+@IranianMinds
+</div>
+
+## alonews — post 120243
+
+<div align="center">
+  <a href="telegram/content/alonews_120243_1778865901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ارتش اسرائیل : عزالدین الحداد فرمانده گردان‌های القسام، همراه با محافظ‌هاش ترور شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120242
+
+<div align="center">
+  <a href="telegram/content/alonews_120242_1778865901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه پخش اسرائیل: تصمیم از سرگیری جنگ در ایران هنوز به رئیس‌جمهور ترامپ بستگی دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120241
+
+<div align="center">
+  <a href="telegram/content/alonews_120241_1778865901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۳ اسرائیل: سیستم امنیتی معتقد است که ترامپ با حمله‌ای محدود به ایران موافقت خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 20:44
 ---
 
