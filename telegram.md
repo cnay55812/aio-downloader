@@ -7,6 +7,62 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 02:14
+---
+
+## WithYashar — post 11360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : ویتنام ۱۹ سال طول کشید، عراق حدود ۱۰ سال، کره ۷ سال، یکی دیگه ۱۴ سال، یکی ۱۲ سال، یکی هم ۹ سال
+- ما فقط دو ماه و نیم اونجا بودیم
+- چین هم این هفته سه تا نفتکش پر از نفت ایران رو برد، چون ما اجازه دادیم این اتفاق بیفته،شما اجازه دادید
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341801
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341801_1778885051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump arrives in Washington after high-stakes China summit https://twitter.com/i/broadcasts/1wGWjazXOPAKQ
+</div>
+
+## alonews — post 120297
+
+<div align="center">
+  <a href="telegram/content/alonews_120297_1778885052.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ در مورد ایران:
+ایران سالهاست که جهان را با تنگه هرمز نگه داشته است. اونا در گذشته تنگه رو بسته بودن اونا ازش به عنوان سلاح استفاده ميکنن اونا ازش به عنوان سلاح با من استفاده نميکنن
+
+
+🔴رئیس جمهور شی دیشب با لبخند گفت: "خب ، آنها تنگه را می بندند ، و بعد شما آنها را می بندید."‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120296
+
+<div align="center">
+  <a href="telegram/content/alonews_120296_1778885053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برت بایر از فاکس: آیا تاب آوری ایران را دست کم گرفتید ؟
+
+
+🔴ترامپ: چیزی را دست کم نگرفتم ما می توانیم پل ها و ظرفیت برق آنها را در دو روز از بین ببریم.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 02:04
 ---
 
