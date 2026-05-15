@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 21:05
+---
+
+## VahidOOnLine — post 240355
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240355_1778866522.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور، عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است.
+عزالدین حداد، از فرماندهان ارشد گردان‌های عزالدین قسام، شاخه نظامی حماس است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار مجاهدین خیلی دارن به دانشجو های داخل ایران پیام میدن، واسه خودم تا الان از دو نفر مختلف پیش اومده، شروع میکنن به توضیح تاریخچه خودشون و همه چیزای خوب رو هم میچسبونن به خودشون و فلان
+نمیدونم چه پروژه ای راه انداختن ولی از طریق
+</div>
+
+## WithYashar — post 11311
+
+
+
+
+## pm_afshaa — post 90804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش اسراییل عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه 13 اسرائیل: ساختار امنیتی [در اسرائیل] بر این ارزیابی است که ترامپ با انجام حمله‌ای محدود به ایران موافقت خواهد کرد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337359
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337359_1778866522.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور، عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است.
+عزالدین حداد، از فرماندهان ارشد گردان‌های عزالدین قسام، شاخه نظامی حماس است.
+https://iranintl.com/202605154092
+</div>
+
+## FarsiVOA — post 217827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بررسی اهمیت سفر تاریخی رئیس سازمان سیا به کوبا در گفت‌و‌گو با مهرزاد بروجردی، استاد علوم سیاسی دانشگاه علم و فناوری میزوری
+</div>
+
+## FarsiVOA — post 217826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیامدهای ویرانگر قطع اینترنت توسط جمهوری اسلامی بر زندگی نابینایان و ناشنوایان ایران
+</div>
+
+## Persian_Trend_Official — post 14204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از ساختمانی که عزالدین حداد، در آن حذف شده است.
+
+
+پ ن : چقدر شبیه انفجار گاز های ایران تخریب شده ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14203
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14203_1778866523.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو
+
+💢نیروهای دفاعی اسرائیل (IDF) عزالدین الحدّاد، فرمانده نظامی حماس در غزه را هدف قرار داده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پس از آنکه اندی بِرنهام، شهردار منچستر، اعلام کرد میخواهد در انتخابات میان‌دوره‌ای شرکت کند و به پارلمان بازگردد، گمانه‌زنی درباره سرنوشت کی‌یر استارمر، رهبر حزب کارگر و نخست وزیر بریتانیا، افزایش یافته. آقای برنهام برای ورود به رقابت بر سر رهبری حزب، ابتدا باید دوباره به‌عنوان نماینده وارد پارلمان شود. او برای نامزدی از حوزه انتخابیه اش در منچستر نیاز به تأیید کمیته اجرایی حزب کارگر دارد. بحث کناره گیری و جایگزینی آقای استارمر بعد از انتخابات محلی اخیر قوت گرفت، انتخاباتی که حزب کارگر در آن بسیاری از کرسی هایش را از دست داد. گزارش هری هارلی را ببینیم.
+@BBCPersian
+</div>
+
+## manototv — post 105496
+
+<div align="center">
+  <a href="telegram/content/manototv_105496_1778866524.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ما صدای فاطمه سپهری هستیم
+</div>
+
+## alonews — post 120245
+
+<div align="center">
+  <a href="telegram/content/alonews_120245_1778866526.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محل ترور عزالدین حداد فرمانده گردان های القسام در شهر غزه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120244
+
+<div align="center">
+  <a href="telegram/content/alonews_120244_1778866528.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رضا سپهوند، عضو کمیسیون انرژی مجلس: یه دلیل بمباران جنگ، روزانه ۳۰ میلیون لیتر کمبود بنزین داریم و در کوتاه‌مدت هم امکان افزایش تولید وجود ندارد، راهی جز صرفه جویی نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 20:54
 ---
 
