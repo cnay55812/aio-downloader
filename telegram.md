@@ -7,6 +7,114 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 10:34
+---
+
+## VahidOOnLine — post 240250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه در پایان سفر رسمی دو روزه به چین و دیدار با شی جین‌پینگ، رئیس‌جمهوری این کشور، پکن را ترک کرد.
+دونالد ترامپ پس از مراسم رسمی بدرقه ‌در فرودگاه بین‌المللی پکن، با هواپیمای ریاست‌جمهوری آمریکا، «ایرفورس وان» به واشنگتن بازگشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11262
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نظرت چیه؟قبل جام جهانی میزنع یا بعد؟
+</div>
+
+## WithYashar — post 11261
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 13 اسرائیل:اسرائیل انتظار دارد حمله احتمالی آمریکا در ایران از فردا با بازگشت ترامپ از چین آغاز شود
+@withyashar
+</div>
+
+## pm_afshaa — post 90766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 13 اسرائیل:اسرائیل انتظار دارد حمله احتمالی آمریکا در ایران از فردا با بازگشت ترامپ از چین آغاز شود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## BBCPersian — post 281116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻این هفته در پرگار: سلامت روانی
+
+🔻سلامت روانی چیست و عوامل موثر در حفظ آن چه هستند؟ سلامت روانی شاخص‌های شناخته شده‌ی جهانی دارد یا متاثر از محیط فرهنگی و اجتماعی است؟
+
+میهمان‌ها:
+نازی اکبری، متخصص در روان درمانی بین فرهنگی
+رضا کاظم زاده، روانشناس بالینی
+ارشیا صدیق، متخصص مغز و اعصاب
+
+این برنامه یک بار دیگر پیش از این پخش شده است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281109
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖌پاول آکسیونوف, تحلیلگر نظامی بخش روسی بی‌بی‌سی:
+
+🔻روسیه از موفقیت‌آمیز بودن آزمایش موشک بالستیک قاره‌پیمای «سارمات» خبر داد. سرگی کاراکایف، فرمانده نیروهای موشکی راهبردی، این موضوع را در گزارشی به ولادیمیر پوتین اطلاع داده است. هم‌زمان، وزارت دفاع روسیه ویدیویی از لحظه پرتاب این موشک منتشر کرده است.
+
+منابع مستقل غربی هنوز درباره پرتاب این موشک روسی اظهارنظر نکرده‌اند. مسیر پرواز آن نیز نامشخص است.
+
+این دومین آزمایش موفق موشک بالستیک سنگین جدید است. نخستین پرتاب در سال ۲۰۲۲ انجام شد.
+
+📸GettyImages/ HANDOUT/EPA/Shutterstock/ Anadolu via Getty Images/ Planet Labs/ AFP via Getty Images/ Official channel of the Russian Ministry of Defense
+
+https://bbc.in/4395RJj
+@BBCPersian
+</div>
+
+## alonews — post 120090
+
+<div align="center">
+  <a href="telegram/content/alonews_120090_1778828661.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پاسخ مدیرعامل انویدیا به احتمال فروش تراشه به هواوی
+
+
+🔴 جنسن هوانگ، مدیرعامل انویدیا، در پاسخ به پرسش خبرنگار مبنی بر فروش تراشه‌های این شرکت به هواوی، این سؤال را عجیب دانست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120089
+
+<div align="center">
+  <a href="telegram/content/alonews_120089_1778828663.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: سهام بوئینگ پس از آنکه ترامپ گفت چین موافقت کرده ۲۰۰ جت بوئینگ بخرد، ۴٪ کاهش یافت — که بسیار کمتر از انتظارات برای قراردادی احتمالی با ۵۰۰ هواپیما بود که پیش از دیدار او با شی جین‌پینگ مطرح شده بود.
+
+
+🔴سرمایه‌گذاران واکنش منفی نشان دادند زیرا جزئیات سفارش هنوز نامشخص است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 10:24
 ---
 
