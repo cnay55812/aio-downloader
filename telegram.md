@@ -7,6 +7,144 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 23:54
+---
+
+## WithYashar — post 11334
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز: آمریکا محمد بکر سعید داود السعدی، فرمانده ارشد شبه‌نظامی گردان‌های حزب‌الله درعراق، رو دستگیر کرد و علیه‌اش کیفرخواست صادر کرد.
+
+او متهم به طراحی حداقل 18 حمله در اروپا، آمریکا و کانادا از پایان فوریه شده؛ این حملات به عنوان انتقام از حملات آمریکا و اسرائیل علیه جمهوری اسلامی برنامه‌ریزی شده بودن.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341797
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341797_1778876673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: President Trump tells @BretBaier that he is signaling a “neutral” stance on Taiwan security following high-stakes meetings with President Xi, emphasizing his desire to avoid military conflict.
+
+The President confirmed that U.S. policy remains unchanged but expressed hesitation regarding billions of dollars in pending weapons approvals for the island.
+
+"I haven't approved it yet. We're going to see what happens. I may do it. I may not do it... We're not looking to have wars."
+
+Watch the full interview at 6 p.m. ET on @SpecialReport
+</div>
+
+## pm_afshaa — post 90813
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90813_1778876675.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏
+🔴مایک والتز، سفیر آمریکا در سازمان ملل: یکی از نتایج بزرگ سفر ترامپ به چین این بود که چین موافقت کرده از ایران فاصله بگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90812
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90812_1778876675.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز: آمریکا محمد بکر سعید داود السعدی، فرمانده ارشد شبه‌نظامی گردان‌های حزب‌الله درعراق، رو دستگیر کرد و علیه‌اش کیفرخواست صادر کرد.
+
+او متهم به طراحی حداقل 18 حمله در اروپا، آمریکا و کانادا از پایان فوریه شده؛ این حملات به عنوان انتقام از حملات آمریکا و اسرائیل علیه جمهوری اسلامی برنامه‌ریزی شده بودن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337388
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337388" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: ترامپ: توقف ۲۰ ساله غنی‌سازی ایران قابل بررسی است
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 14219
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14219_1778876676.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹دستور مستقیم نخست وزیر عراق به کلیه گمرکات عراق به‌منظور عبور ترانزیت کالاهای ایرانی از کشور عراق به ایران
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14218
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14218_1778876677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون گزارش ها از بمباران شدید و غیر عادی در جنوب لبنان
+
+
+👑:☆Phantom☆
+
+📮 persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14216
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14216_1778876677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی‌ان‌ان: هکرهای جمهوری اسلامی سامانه پمپ‌بنزین‌های آمریکا را هدف قرار دادند
+
+🔹شبکه سی‌ان‌ان مدعی شد هکرهای وابسته به جمهوری اسلامی موفق شده‌اند سامانه‌های خوانش مخازن سوخت در چند ایالت آمریکا را هک کنند.
+
+💢بر اساس این گزارش:
+
+▪️ حملات چندین جایگاه سوخت در ایالت‌های مختلف آمریکا را هدف قرار داده است
+
+▪️ سامانه‌های مرتبط با مدیریت و پایش مخازن سوخت دچار اختلال شده‌اند
+
+▪️ جزئیاتی درباره میزان خسارت یا اختلال گسترده منتشر نشده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 120283
+
+<div align="center">
+  <a href="telegram/content/alonews_120283_1778876678.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ رسید آمریکا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 23:44
 ---
 
