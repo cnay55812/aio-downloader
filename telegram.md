@@ -7,6 +7,50 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 10:14
+---
+
+## FoxNewsTwitter — post 341766
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341766_1778827460.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump exits the Beast to fanfare and pumps his fist during a departure ceremony at Beijing Capital International Airport.
+
+Ahead of his departure, Trump met with Chinese President Xi Jinping and expressed optimism about hosting him in the U.S. this September.
+
+“You're going to walk away hopefully very impressed, like I'm very impressed with China."
+</div>
+
+## IranIntlTV — post 337268
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337268_1778827462.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی، گفت جمهوری اسلامی با بستن تنگه هرمز، خود را در یک تنگنای دیپلماتیک قرار داده و باعث شکل‌گیری ائتلافی بین‌المللی علیه خود شده است.
+@iranintltv
+</div>
+
+## alonews — post 120087
+
+<div align="center">
+  <a href="telegram/content/alonews_120087_1778827463.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پایان سفر ترامپ به چین
+
+
+🔴ترامپ سوار ایر فورس وان شد و سفر خود به چین را به پایان رساند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 10:04
 ---
 
