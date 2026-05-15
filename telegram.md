@@ -7,6 +7,40 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 04:13
+---
+
+## VahidOOnLine — post 240221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️امید برزگری، مربی سازمان امداد و نجات هلال‌احمر، در گفتگویی تصویری با خبرآنلاین درباره سگ‌های امداد و نجات گفت: «این سگ‌ها پست نیستند؛ فرشته‌اند، فرشته نجات.»
+او این اظهارات را در واکنش به گزارشی از صداوسیمای جمهوری اسلامی مطرح کرد که در آن از مردم پرسیده شده بود: «کدامیک از سگ‌های هلال‌احمر پست‌تر است؟»
+جمعیت هلال‌احمر ایران اعلام کرده سگ‌های زنده‌یاب این سازمان از ابتدای جنگ اخیر در ۷۹۲ عملیات جستجو و نجات شرکت کرده‌اند و در ۷۱۱ عملیات موفق به زنده‌یابی یا جستجوی پیکر کشته‌شدگان شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Shin_Persian — post 6005
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6005_1778805835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+U.S. Central Command ✓ @CENTCOM
+Fri, 15 May 2026 00:38:22 UTC
+
+A U.S. Air Force F-16 takes off from a base in the Middle East for a night flight. Air Force fighter aircraft regularly patrol the skies over the Middle East in support of regional security.
+
+فارسی
+
+یک فروند اف-۱۶ نیروی هوایی ایالات متحده (USAF) برای یک پرواز شبانه از پایگاهی در خاورمیانه به هوا برمی‌خیزد. جنگنده‌های نیروی هوایی به طور منظم در حمایت از امنیت منطقه‌ای، در آسمان‌های خاورمیانه گشت‌زنی می‌کنند.
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 04:04
 ---
 
