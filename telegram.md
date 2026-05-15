@@ -7,6 +7,147 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 01:44
+---
+
+## FoxNewsTwitter — post 341799
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341799_1778883285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: SpaceX CRS-34 resupply mission launches from Cape Canaveral (Courtesy: SpaceX) https://twitter.com/i/broadcasts/1nGnRYkMkydGO
+</div>
+
+## IranIntlTV — post 337394
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337394_1778883286.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در مسیر بازگشت از چین گفت با تعلیق ۲۰ ساله غنی‌سازی اورانیوم در ایران موافق است، به شرط آنکه در این مدت تمام برنامه هسته‌ای تهران پاکسازی شود.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14224
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14224_1778883288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اف‌بی‌آی از بازداشت یک متهم به طراحی حملات تروریستی خبر داد
+
+💢اداره تحقیقات فدرال آمریکا اعلام کرد «محمد السعدی» که از او به‌عنوان یک هدف باارزش مرتبط با تروریسم بین‌المللی یاد شده، بازداشت و به آمریکا منتقل شده است.
+
+🔻بر اساس بیانیه اف‌بی‌آی:
+
+▪️ السعدی و همدستانش متهم به برنامه‌ریزی، هماهنگی و پذیرش مسئولیت دست‌کم ۲۰ حمله تروریستی در اروپا و کانادا هستند
+▪️ مقام‌های آمریکایی مدعی‌اند این شبکه در حال برنامه‌ریزی حملات آینده علیه آمریکا نیز بوده است
+▪️ از جمله اهداف احتمالی، مراکز و نهادهای یهودی در نیویورک، کالیفرنیا و آریزونا عنوان شده‌اند
+
+💢اف‌بی‌آی این بازداشت را بخشی از اقدامات دولت ترامپ برای مقابله با تروریسم توصیف کرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20214
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20214_1778883289.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جلد جدید مجله تایم:
+
+چگونه دیدار ترامپ و شی، یک نظم نوین جهانی را به نمایش گذاشت.
+
+@IranianMinds
+</div>
+
+## alonews — post 120292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه سرویس های Vip 
+⭕️ 
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان 
+✅ 3 گیگابایت 
+⬅️ 750/000 تومان استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات) 
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان 
+⭐️ 10 گیگابایت 
+⬅️ 2/800/000 تومان ویژگی های سرویس های Vip : 
+❤️‍🔥 
+✅ متصل…
+</div>
+
+## alonews — post 120291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه سرویس های Vip 
+⭕️
+
+
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان
+
+✅ 3 گیگابایت 
+⬅️ 750/000 تومان
+
+استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات)
+
+
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان
+
+⭐️ 10 گیگابایت 
+⬅️ 2/800/000 تومان
+
+ویژگی های سرویس های Vip : 
+❤️‍🔥
+
+✅ متصل در تمامی دستگاه و اپراتور ها
+
+✅ مناسب استفاده روزمره در تمامی برنامه ها
+
+✅ دارای ساب برای اطلاع لحظه ای باقیمانده
+
+✅ تک لینک بدون نیاز به بروزرسانی های متعدد
+ برای خرید از پشتیبانی به ایدی زیر پیام بدید.
+👇
+
+
+🔤 @expressuport
+
+خرید فوری از ربات.
+👇
+
+
+🔤 @vpn_express_sup_bot
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 01:34
 ---
 
