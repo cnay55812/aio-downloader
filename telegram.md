@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 08:53
+---
+
+## FoxNewsTwitter — post 341764
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341764_1778822637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump took a stroll through Zhongnanhai Garden, part of a powerful Chinese government complex, with President Xi Jinping on his second day of meetings in Beijing.
+</div>
+
+## IranIntlTV — post 337258
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337258_1778822638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، پس از دیدار با شی جین‌پینگ در پکن، به شبکه فاکس نیوز گفت رییس‌جمهوری چین پیشنهاد داده برای کمک به بازگشایی تنگه هرمز همکاری کند. هم‌زمان وزارت خارجه چین نیز اعلام کرد: «تنگه هرمز باید هرچه زودتر بازگشایی شود.»
+
+توماج طاهباز و امیر گیتی، خبرنگاران ایران‌اینترنشنال، گزارش می‌دهند
+@iranintltv
+</div>
+
+## alonews — post 120062
+
+<div align="center">
+  <a href="telegram/content/alonews_120062_1778822641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: رئیس‌جمهور چین می‌خواهد شاهد توافق با ایران باشد و برای کمک به این کار اعلام آمادگی کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120061
+
+<div align="center">
+  <a href="telegram/content/alonews_120061_1778822641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت جهانی نفت روز جمعه پس از آن افزایش یافت که دونالد ترامپ اعلام کرد چین پس از گفت‌وگوهای او با شی جین‌پینگ، با خرید نفت از آمریکا موافقت کرده است.
+
+
+🔴 با این حال، پکن تاکنون این ادعا را تأیید نکرده و به درخواست رسانه‌ها برای اظهار نظر نیز پاسخی نداده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120060
+
+<div align="center">
+  <a href="telegram/content/alonews_120060_1778822641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ، به شبکه فاکس نیوز: مذاکره با ایران درباره کنار گذاشتن غبار هسته‌ای به دلیل تضاد در تصمیمات ایران، رفت و برگشت دارد
+
+
+🔴تأسیسات هسته‌ای ایران تحت نظارت مداوم ۹ دوربین، ۲۴ ساعته قرار دارند.
+
+🔴هرگونه تحرک ایرانی در داخل تأسیسات هسته‌ای با واکنش مستقیم نظامی مواجه خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 08:43
 ---
 
