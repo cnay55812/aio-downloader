@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 12:24
+---
+
+## VahidOOnLine — post 240267
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240267_1778835282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت‌بلاکس خبر داد که قطعی اینترنت در ایران از هزار و ۸۲۴ ساعت گذشته و وارد هفتادوهفتمین روز شده است.
+نت‌بلاکس نوشت: در پی تداوم قطع اینترنت در ایران، بخش زیادی از مردم از ارتباطات آنلاین و تعامل با جهان خارج محروم شده‌اند و نگرانی‌ها درباره پیامدهای روانی افزایش یافته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 337283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۱ اسرائیل به نقل از منابع اسرائیلی و آمریکایی گزارش داد اسرائیل در پیامی روشن به واشینگتن، خواستار بازگشت به درگیری با جمهوری اسلامی شده است.
+
+جزییات بیشتر در گزارش بابک اسحاقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337282
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337282_1778835282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت‌بلاکس خبر داد که قطعی اینترنت در ایران از هزار و ۸۲۴ ساعت گذشته و وارد هفتادوهفتمین روز شده است.
+نت‌بلاکس نوشت: در پی تداوم قطع اینترنت در ایران، بخش زیادی از مردم از ارتباطات آنلاین و تعامل با جهان خارج محروم شده‌اند و نگرانی‌ها درباره پیامدهای روانی افزایش یافته است.
+https://iranintl.com/202605150265
+</div>
+
+## Persian_Trend_Official — post 14179
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14179_1778835283.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آمریکا برای اطلاعات درباره واحد تولید پهپاد سپاه جایزه تعیین کرد
+
+💢وزارت خارجه آمریکا اعلام کرد برای دریافت اطلاعات درباره ۶ فرد مرتبط با واحد تولید پهپاد نیروی قدس سپاه پاسداران جایزه مالی تعیین کرده است.
+
+بر اساس بیانیه واشینگتن:
+
+▪️ این افراد با شرکت «کیمیا پارت سیوان» مرتبط هستند
+▪️ آمریکا مدعی است این مجموعه در آزمایش، توسعه و تأمین پهپادها نقش دارد
+▪️ اطلاعات درباره این افراد، همکاران یا شبکه‌های مالی آن‌ها می‌تواند مشمول جایزه شود
+
+💢برنامه پاداش امنیتی وزارت خارجه آمریکا اعلام کرده میزان این جایزه تا ۱۵ میلیون دلار خواهد بود.
+
+💢در متن منتشرشده آمده است:
+
+▪️ «به ما کمک کنید به منابع مالی سپاه ضربه بزنیم»
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 120121
+
+
+
+
+## alonews — post 120120
+
+
+
+
+## alonews — post 120119
+
+<div align="center">
+  <a href="telegram/content/alonews_120119_1778835284.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دستگیری ۲۲۳ نفر از اتباع بیگانه غیرمجاز در زاهدان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120118
+
+<div align="center">
+  <a href="telegram/content/alonews_120118_1778835284.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 فایننشال‌تایمز: اگر تا ماه آینده تنگهٔ هرمز باز نشود، به‌دلیل تخلیهٔ ذخایر استراتژیک شاهد موج گسترده‌تری از کمبودهای جهانی و افزایش قیمت‌ها در حوزهٔ انرژی خواهیم بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 12:14
 ---
 
