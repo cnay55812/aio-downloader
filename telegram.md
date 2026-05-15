@@ -7,6 +7,32 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 06:53
+---
+
+## VahidOOnLine — post 240237
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240237_1778815422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️درحالی که برخی گزارش‌ها حاکی از آن است که رژیم ایران از فرصت آتش‌بس برای بیرون کشیدن موشک‌ها و پرتابگر‌ها از زیر آوار استفاده کرده و بخش قابل توجهی از ظرفیت موشکی و پرتابگر‌ها را حفظ کرده است، دونالد ترامپ به فاکس گفت که همه‌چیز را کاملا زیرنظر داریم و ممکن است ایران برای خارج کردن بخشی از موشک ها از زیر زمین تلاش کرده باشد. اما همه آنچه در این چهار هفته انجام داده می‌تواند در یک روز از بین برود و نابود شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FarsiVOA — post 217790
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217790_1778815423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تصاویر اختصاصی صدای آمریکا از حضور اصغر فرهادی و عوامل فیلم «داستان‌های موازی» روی فرش قرمز فستیوال فیلم کن
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 06:43
 ---
 
