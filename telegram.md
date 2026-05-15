@@ -7,6 +7,136 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 09:54
+---
+
+## WithYashar — post 11257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا برای سومین بار طرح دموکرات‌ها جهت محدود کردن اختیارات نظامی ترامپ علیه جمهوری اسلامی رو رد کرد.
+
+این طرح با نتیجه ۲۱۲ در برابر ۲۱۲ به تساوی رسید و در نهایت با اختلاف یک رای شکست خورد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341765
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341765_1778826255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump departs Beijing after summit with President Xi https://twitter.com/i/broadcasts/1XxygmDlakEGM
+</div>
+
+## IranIntlTV — post 337267
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337267_1778826256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاویدنامان انقلاب ملی ایرانیان
+«حمید مهدوی»، آتش‌نشان، شامگاه ۱۸ دی‌ماه در حالی که مشغول به امدادرسانی به مجروحان بود مورد اصابت مستقیم گلوله قرار گرفت. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337266
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337266" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | جمعه ۲۵ اردیبهشت
+@iranintlTV
+</div>
+
+## FarsiVOA — post 217804
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217804_1778826258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با صدور اطلاعیه‌ای به ساکنان مناطق شبریحا، حمادیه (صور)، زقوق المفدی، معشوق، الحوش، در لبنان هشدار داد تا برای حفظ امنیت، فوراً خانه‌های خود را تخلیه کنند.
+
+این هشدار در پی نقض توافق آتش‌بس از سوی «حزب‌الله» صادر شد و ارتش اسرائیل اعلام کرد که ناچار است با قدرت علیه این امر اقدام کند.
+
+در اطلاعیه ارتش اسرائيل آمده است که شهروندان دست‌کم تا فاصله ۱۰۰۰ متری از این مناطق دور شده و به مناطق باز و امن پناه ببرند. هر کسی که در نزدیکی نیروهای حزب‌الله، تأسیسات و تجهیزات نظامی آن حضور داشته باشد، جان خود را در معرض خطر قرار می‌دهد.
+
+شامگاه پنجشنبه ۲۴ اردیبهشت، «گروهبان نقب داگان»، ۲۰ ساله، سرباز ارتش اسرائیل بر اثر خمپاره‌ای حزب‌الله در جنوب لبنان کشته شد.
+@FarsiVOA
+</div>
+
+## BBCPersian — post 281107
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281107_1778826258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فاطمه وحدت، نایب رئیس اتحادیه زنان کارگر سراسر ایران در مورد تاثیرات جنگ بر وضعیت اشتغال زنان گفت که در شرایط بحرانی «زنان کارگر بیشتر در معرض اخراج قرار می‌گیرند و زنانی که سرپرست خانوار هستند، بیشترین آسیب را متحمل می‌شوند.»
+
+به گفته خانم وحدت ادامه این روند می‌تواند پیامدهای اجتماعی گسترده‌ای داشته باشد.
+
+نایب رئیس اتحادیه زنان کارگر ضمن انتقاد از نبود حمایت کافی برای زنان کارگر تاکید کرد که «بسیاری از مسئولان از شرایط فعلی اطلاع دارند، اما نظارت جدی در این مورد وجود ندارد.»
+
+او همچنین گفت که نشانه‌های گسترده فقر در جامعه مشهود است و برخی از مردم حتی برای خرید نان مشکل دارند.
+
+📸 Getty
+
+https://bbc.in/3R12525
+@BBCPersian
+</div>
+
+## alonews — post 120082
+
+<div align="center">
+  <a href="telegram/content/alonews_120082_1778826259.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در کنار شی جین‌پینگ: ما در مورد ایران صحبت کردیم. احساس می‌کنیم در مورد ایران بسیار شبیه به هم فکر می‌کنیم. می‌خواهیم که این موضوع پایان یابد. نمی‌خواهیم که آن‌ها سلاح هسته‌ای داشته باشند. می‌خواهیم تنگه‌ها باز باشند.
+
+
+🔴ما در حال حاضر آن را می‌بندیم. آن‌ها آن را بستند و ما آن را بالای سرشان بستیم. اما می‌خواهیم تنگه‌ها باز باشند.
+
+
+🔴می‌خواهیم که آن را به پایان برسانند زیرا این یک کار دیوانه‌وار است. آن‌ها کمی دیوانه هستند و این خوب نیست.
+
+
+🔴آن‌ها نمی‌توانند سلاح هسته‌ای داشته باشند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120081
+
+<div align="center">
+  <a href="telegram/content/alonews_120081_1778826261.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 هانی‌کس از فاکس نیوز: مردم نگران نیت‌های شوم چین هستند.
+
+
+🔴ترامپ: آن‌ها کارهایی علیه ما انجام می‌دهند و ما نیز کارهایی علیه آن‌ها انجام می‌دهیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120080
+
+<div align="center">
+  <a href="telegram/content/alonews_120080_1778826262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ می‌گوید که ایران حتی قادر به رسیدن به «گرد و غبار هسته‌ای» نیست زیرا «کوه بر سر آن خراب شده است» و تنها چین و ایالات متحده می‌توانند به آن دست یابند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 09:44
 ---
 
