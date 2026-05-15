@@ -7,6 +7,349 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 14:45
+---
+
+## VahidOOnLine — post 240293
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240293_1778843708.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️نخست وزیر هند در امارات: باز نگه داشتن تنگه هرمز بالاترین اولویت ماست
+
+♦️نارندرا مودی، نخست‌وزیر هند، روز جمعه در آغاز سفر پنج‌کشوری خود وارد امارات متحده عربی شد، سفری که تحت تاثیر نگرانی‌ها از پیامدهای جنگ ایران بر بازار انرژی و زنجیره‌های تامین جهانی قرار گرفته است.
+
+مودی که در بدو ورود با اسکورت جنگنده‌های نظامی همراهی شد، از سوی محمد بن زاید آل نهیان، رئیس امارات، مورد استقبال رسمی قرار گرفت.
+
+مودی در دیدار با رئیس دولت امارات، با اشاره به اهمیت این آبراه هرمز گفت: «آزاد، باز و ایمن نگه داشتن تنگه هرمز بالاترین اولویت ما است و در این زمینه پایبندی به قوانین بین‌المللی ضروری است.»
+
+وزارت خارجه هند اعلام کرد امارات و هند به توافق‌های راهبردی در حوزه نفت و گاز دست یافته‌اند و ابوظبی متعهد شده پنج میلیارد دلار در هند سرمایه‌گذاری کند، هرچند جزئیات بیشتری ارائه نشده است.
+
+این سفر بخشی از تلاش گسترده‌تر هند برای گسترش شراکت‌های اقتصادی و راهبردی و کاهش وابستگی‌ها در شرایط تحولات ژئوپلیتیک ارزیابی می‌شود. مودی پس از امارات به هلند، سوئد، نروژ و ایتالیا سفر خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240292
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240292_1778843710.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، روز جمعه ۲۵ اردیبهشت ماه، در نشست خبری در دهلی‌نو اعلام کرد تهران پس از اظهارات اخیر دونالد ترامپ مبنی بر رد پیشنهاد تهران، پیام‌هایی از طرف آمریکا دریافت کرده که نشان می‌دهد واشنگتن همچنان خواهان ادامه گفتگوها و تعامل است.
+عراقچی با اشاره به گزارش‌ها درباره رد شدن پیشنهاد یا پاسخ ایران از سوی آمریکا گفت: «اینکه مطرح شده آمریکا پیشنهاد یا پاسخ ایران را رد کرده، مربوط به چند روز پیش است؛ زمانی که آقای ترامپ در پیامی اعلام کرد این پیشنهاد غیرقابل قبول است.»
+او افزود: «اما پس از آن، ما مجددا پیام‌هایی از طرف آمریکایی‌ها دریافت کردیم که مایل به ادامه گفتگوها و تعامل هستند.»
+رسانه‌های ایران روز جمعه به‌نقل از تهران‌تایمز، نشریه انگلیسی‌زبان سازمان تبلیغات اسلامی‌گزارش داده بودند که آمریکا پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی را رد کرده است‌.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11281
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11281_1778843712.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ وسط پرواز به فاکس نیوز اعلام کرد که ممکن است توقف ۲۰ سالهٔ فعالیت هسته‌ای ایران را بپذیرد.
+
+ترامپ:“بیست سال کافی است. اما میزان تضمینی که از طرف آن‌ها می‌گیریم… باید واقعاً یک بیست سالِ واقعی باشد.”»
+@withyashar
+</div>
+
+## WithYashar — post 11280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ وسط‌ پرواز به فاکس‌نیوز : «من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.»
+«مواد هسته‌ای» ایران، ممکنه به چین یا آمریکا تحویل داده شه!
+@withyashar
+</div>
+
+## mwarmonitor — post 9119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ترامپ: سلام به همگی. خب، ما اقامت بسیار خوبی داشتیم، دوران فوق‌العاده‌ای بود. رئیس‌جمهور شی (جین‌پینگ) آدم بی‌نظیریه. ما روی معاملات تجاری خیلی خوبی توافق کردیم، از جمله بیش از ۲۰۰ هواپیما از بوئینگ با وعده خرید تا ۷۵۰ هواپیما، که اگر ۲۰۰ تای اول رو به خوبی…
+</div>
+
+## pm_afshaa — post 90780
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90780_1778843713.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: وقتی به پیشنهاد ایران نگاه کردم، جمله اول رو دوست نداشتم و قابل قبول نبود، بنابراین پیشنهاد رو رد کردم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90779
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90779_1778843714.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ارتش ایران رو از بین بردیم و شاید باید یک عملیات پاکسازی سبک انجام دهیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو: اگر ایران فکر می‌کند ما برای رسیدن به توافق امتیازاتی می‌دهیم، سخت در اشتباه است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90777
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90777_1778843714.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ: نیروی هوایی ایران رو به طور کامل حذف کردیم و از شر رهبران ایران خلاص شدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90776
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90776_1778843715.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من از رئیس جمهور چین نخواستم که به ایران برای باز کردن تنگه هرمز فشار بیاورد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90775
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90775_1778843716.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس‌ نیوز: من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق رو امضا کنند. مواد هسته‌ای ایران، ممکنه به چین یا آمریکا تحویل داده شه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337310
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337310_1778843716.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسیدگی به پرونده متهمان حمله با کوکتل مولوتوف به پارکینگ ساختمان مجاور دفتر ایران اینترنشنال در لندن، در دادگاه اولد بیلی آغاز شد. سه متهم این پرونده با اتهام پرتاب مواد آتش‌زا و به خطر انداختن جان مردم محاکمه می‌شوند.
+تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## FarsiVOA — post 217813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزرای بریکس در صدور یک بیانیه مشترک ناکام شدند
+
+▪️نشست دو روزه وزیران خارجه کشورهای عضو گروه اقتصادهای نوظهور بزرگ موسوم به «بریکس» در دهلی نو بدون صدور بیانیه مشترک پایان یافت.
+
+▪️عدم صدور یک بیانیه مشترک در شرایطی بود که به گفته هند، میزبان این نشست، «دیدگاه‌های متفاوتی میان برخی اعضا» درباره وضعیت خاورمیانه وجود داشت.
+
+▪️بریکس شامل کشورهای برزیل، روسیه، هند، چین، آفریقای جنوبی، اتیوپی، مصر، ایران، امارات متحده عربی و اندونزی است.
+
+▪️اختلافات میان اعضا در جریان جنگ اخیر خاورمیانه، به‌ویژه میان تهران و امارات متحده عربی، بیشتر آشکار شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150371.html
+</div>
+
+## Persian_Trend_Official — post 14188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: «من دیگر خیلی بیشتر از این صبر نخواهم کرد. آنها باید توافق را امضا کنند.» 💢آخرین چیزی که الان به آن نیاز داریم جنگ است، ایران میتواند اورانیوم غنی شده خود را به چین یا آمریکا تحویل دهد 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال…
+</div>
+
+## Persian_Trend_Official — post 14187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ اشاره کرد که می‌تواند توقف ۲۰ ساله فعالیت‌های هسته‌ای ایران را بپذیرد: ۲۰ سال کافی است. اما سطح تضمین از طرف آنها... باید واقعاً ۲۰ سال باشد. 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14186
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14186_1778843718.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ اشاره کرد که می‌تواند توقف ۲۰ ساله فعالیت‌های هسته‌ای ایران را بپذیرد:
+
+۲۰ سال کافی است. اما سطح تضمین از طرف آنها... باید واقعاً ۲۰ سال باشد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+ارتش ایران را نابود کردیم و شاید لازم باشد یک عملیات پاکسازی سبک دیگر‌ هم انجام دهیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+نیروی هوایی ایران را کاملا نابود کردیم و از شر رهبران ایرانی خلاص شدیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+ایران هرگز به سلاح هسته‌ای دست نخواهد یافت و تحت هیچ شرایطی فرصتی برای آن نخواهد داشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20181
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20181_1778843719.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره رهبر کره شمالی :
+
+من رابطه خیلی خوبی با کیم جونگ‌اون دارم.
+
+او به کشور ما احترام گذاشته است و من می‌خواهم همین احترام را ادامه دهد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+80 درصد از توان موشکی ایران نابود شده است
+
+@IranianMinds
+</div>
+
+## alonews — post 120165
+
+<div align="center">
+  <a href="telegram/content/alonews_120165_1778843721.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: وقتی به پیشنهاد ایران نگاه کردم، جمله اول را دوست نداشتم و قابل قبول نبود، بنابراین پیشنهاد را رد کردم
+
+
+🔴تحقیقات درباره هدف قرار دادن مدرسه در ایران در حال انجام است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120164
+
+<div align="center">
+  <a href="telegram/content/alonews_120164_1778843721.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من به جایی رفتم که شی زندگی می کند، چیزی که به ندرت اتفاق می افتد.
+
+
+🔴خبرنگار: اونجا بودی؟
+
+
+🔴ترامپ: آره قشنگ بود.منظورم این است که مردم هرگز آن را ندیده اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120163
+
+<div align="center">
+  <a href="telegram/content/alonews_120163_1778843721.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: رابطه بسیار خوبی با کیم جونگ اون دارم
+
+
+🔴دونالد ترامپ گفت با کیم جونگ اون، رهبر کره شمالی، «رابطه بسیار خوبی» دارد و او تا امروز نسبت به آمریکا محترمانه رفتار کرده است.
+
+
+🔴ترامپ اضافه کرد که میخواهد این احترام ادامه داشته باشد. این اظهارات در حالی مطرح میشود که پرونده کره شمالی دوباره به یکی از آزمون‌های مهم سیاست خارجی واشنگتن تبدیل شده، جایی که ترامپ مثل همیشه روی رابطه شخصی با رهبران سختگیر حساب باز میکند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120162
+
+<div align="center">
+  <a href="telegram/content/alonews_120162_1778843723.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: 80 درصد از توان موشکی ایران نابود شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 14:35
 ---
 
