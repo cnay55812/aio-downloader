@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 23:29
+---
+
+## VahidOOnLine — post 240377
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240377_1778875147.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از افزایش نجومی قیمت کولر آبی خبر دادند و افزودند در حال حاضر، قیمت کولرهای آبی از حدود ۲۰ میلیون تومان شروع می‌شود و برخی مدل‌های سلولزی و کم‌مصرف به بالای ۵۰ میلیون تومان رسیده‌اند.
+بنا بر این گزارش، بسیاری از خریداران به سمت تعمیر کولرهای قدیمی و خرید مدل‌های دست‌دوم رفته‌اند.
+
+این در حالی است که در سال ۱۴۰۱، ارزانترین کولر آبی در بازار یک میلیون و ۵۰۰ تومان و ارزانترین کولر گازی دیواری نیز ۹ میلیون تومان بوده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11333
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11333_1778875147.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه خداحافظی ترامپ با شی و خوشحالی او از سفر موفقیت آمیزش
+@withyashar
+</div>
+
+## VahidOnline — post 75491
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75491_1778875149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی، گفت که جنازه پدرش که در نخستین روز حملات اسرائیل و آمریکا به دفتر خامنه‌ای کشته شد، نزدیک به ۳۰ روز زیر آوار مانده بود.
+موسوی پس از کشته شدن محمد باقری در جنگ ۱۲ روزه، به‌عنوان رییس ستاد کل نیروهای مسلح منصوب شد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش فرمانده حماس کشته شد ‏ نخست‌وزیر و وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴روابط عمومی هیات کوهنوردی استان همدان اعلام کرد که پس از گذشت چهار ماه از مفقود شدن چهار کوهنورد در ارتفاعات الوند، پیکر چهارمین کوهنورد در روز جمعه ۲۵ اردیبهشت پیدا شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴مدیر جهاد کشاورزی کازرون اعلام کرد که در پی آتش‌سوزی در مزارع گندم روستای علی‌آباد دوتو در بخش مرکزی این شهرستان، ۲۰ هکتار از مزارع خسارت دید
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87418
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87418_1778875149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی ان‌ ان
+هکرهای ایرانی با سوءاستفاده از یک نقص جزئی: بدون رمز عبور، به مانیتورهای سوخت پمپ بنزین‌های ایالات متحده نفوذ کردند.
+
+آنها خوانش‌ها را جعل کردند اما نتوانستند به سطح واقعی سوخت دست بزنند.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337380
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337380_1778875149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از افزایش نجومی قیمت کولر آبی خبر دادند و افزودند در حال حاضر، قیمت کولرهای آبی از حدود ۲۰ میلیون تومان شروع می‌شود و برخی مدل‌های سلولزی و کم‌مصرف به بالای ۵۰ میلیون تومان رسیده‌اند.
+بنا بر این گزارش، بسیاری از خریداران به سمت تعمیر کولرهای قدیمی و خرید مدل‌های دست‌دوم رفته‌اند.
+
+این در حالی است که در سال ۱۴۰۱، ارزانترین کولر آبی در بازار یک میلیون و ۵۰۰ تومان و ارزانترین کولر گازی دیواری نیز ۹ میلیون تومان بوده است.
+https://iranintl.com/202605156933
+</div>
+
+## FarsiVOA — post 217855
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پیام واشنگتن به زیدی: شراکت، مشروط به مهار گروه‌های وابسته به جمهوری اسلامی و نابودی تروریسم است
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14213
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14213_1778875150.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرلشکر رضایی: قواعد نظم جدید جهان آمریکامحور نیست
+
+🔺رئیس‌جمهور آمریکا نه از موضع قدرت، بلکه در سایه سنگین ناکامی در جنگ با ایران وارد پکن شد و آنجا را ترک کرد؛ وقتی او برای مهار بحران خودساخته به نفوذ چین چشم می‌دوزد، یعنی نظم جدید به سرعت در حال تنظیم قواعدی است که دیگر آمریکامحور نیست!
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/MneL4ZkKs1A?feature=share
+</div>
+
+## alonews — post 120280
+
+<div align="center">
+  <a href="telegram/content/alonews_120280_1778875150.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع عراقی از حملۀ پهپادی به مقر گروهک‌های تجزیه‌طلب در کردستان عراق خبر می‌دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 23:24
 ---
 
