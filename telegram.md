@@ -7,6 +7,244 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 14:54
+---
+
+## WithYashar — post 11285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس‌نیوز : ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
+میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
+اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
+@withyashar
+</div>
+
+## WithYashar — post 11284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## WithYashar — post 11283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارو به قاهره میبره؟
+خب پس بذار هرچی میخواد بگه
+</div>
+
+## WithYashar — post 11282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس‌نیوز:
+پیشنهاد ایرانیا که برام رسید همون‌ جمله ی اول متنشونو که خوندم برام قابل قبول نبود و سریع ردش کردم
+@withyashar
+</div>
+
+## mwarmonitor — post 9121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرنگار: آقای رئیس‌جمهور، در شبکه "تروث سوشال" (Truth Social) گفتید که رئیس‌جمهور شی (رئیس‌جمهور چین) به افول ایالات متحده اشاره کرده است. ما نشنیدیم که او چنین چیزی بگوید، شاید چیزی بوده که در خلوت گفته است. اول از همه، او دقیقاً چه گفت که باعث شد شما آن…
+</div>
+
+## mwarmonitor — post 9120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+...باز کردن تنگه [هرمز]. اما همان‌طور که او (رهبر چین) گفت، آن‌ها آن را بستند و بعد شما با یک لبخند آن‌ها را [مجبور به] بستن کردید. و این حقیقت دارد؛ ما کنترل تنگه را در دست داریم. و آن‌ها هیچ معامله‌ای انجام نداده‌اند، در واقع در دو هفته و نیم گذشته هیچ معامله‌ای…
+</div>
+
+## pm_afshaa — post 90782
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90782_1778844265.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: به رئیس جمهور چین گفتم در مورد پرونده تایوان صحبت نمی‌کنم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90781
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90781_1778844266.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من مشکلی ندارم که ایران برنامه هسته‌ای خودش رو به مدت 20 سال تعلیق کنه، اما این باید یک تعهد واقعی باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranianMinds — post 20190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+تنها کشورهایی که قادر به خارج کردن غبار هسته‌ای از ایران هستند، آمریکا و چین هستند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20189
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+می‌توانستیم پل‌ها و شبکه‌های برق ایران را نابود کنیم و همه چیز را آن‌جا طی دو روز از بین ببریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+اگر ۹ ماه پیش از بمب‌های B-2 استفاده نکرده بودم، ایران اکنون قادر به دستیابی به سلاح هسته‌ای بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+رئیس ‌جمهور چین با عدم دستیابی ایران به سلاح هسته‌ای موافق است و می‌خواهد ایران تنگه هرمز را باز کند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+تحقیقات درباره هدف قرار گرفتن مدرسه‌ای در ایران ( مدرسه میناب ) در جریان است.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پایان نشست وزرای خارجه بریکس بدون صدور بیانیه مشترک
+
+نشست وزیران خارجه گروه بریکس بدون صدور بیانیه مشترک پایان یافت؛ موضوعی که نشان‌دهنده اختلافات عمیق میان اعضا بر سر جنگ ایران و بحران خاورمیانه است.
+
+این نشست دو روزه در دهلی‌ نو برگزار شد و کشورهای عضو درباره موضوعاتی مانند امنیت دریایی،‌ حاکمیت کشورها، وضعیت تنگه هرمز و جنگ غزه گفت‌وگو کردند.
+
+با این حال اختلاف دیدگاه‌ها به ویژه میان ایران و امارات متحده عربی،‌ مانع دستیابی به موضعی واحد شد.
+
+ایران خواستار آن بود که بریکس اقدامات آمریکا و اسرائیل را محکوم کند.
+
+عباس عراقچی، وزیر خارجه ایران، از کشورهای عضو خواست در برابر «سیاسی کردن نهادهای بین‌المللی» مقاومت کنند و موضعی قاطع‌تر بگیرند. اما برخی اعضا از جمله امارات متحده عربی با این رویکرد موافق نبودند.
+
+در پایان، هند که ریاست دوره‌ای بریکس را برعهده دارد،‌ به جای بیانیه مشترک فقط «بیانیه رئیس نشست» را منتشر کرد،‌ اقدامی که معمولا زمانی انجام می‌شود که اعضا نتوانند بر سر متن نهایی به توافق برسند.
+
+در بیانیه ریاست نشست که توسط وزارت خارجه هند منتشر شد، آمده است که «دیدگاه‌های متفاوتی در بین برخی از اعضا درباره وضعیت در منطقه غرب آسیا/ خاورمیانه» وجود دارد.
+
+این اختلافات نشان می‌دهد که بریکس گسترش یافته، که اکنون شامل کشورهایی مانند ایران،‌ امارات،‌ مصر، اتیوپی و اندونزی هم هست،‌ در حفظ انسجام سیاسی با چالش روبرو شده است،‌ به ویژه زمانی که اعضای آن در بحران‌های منطقه‌ای در جبهه‌های متفاوت قرار دارند.
+
+https://bbc.in/3R12525
+@BBCPersian
+</div>
+
+## BBCPersian — post 281125
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روابط عمومی سپاه پاسداران استان لرستان از خنتی‌‌سازی یک بمب از زمان جنگ اسرائیل و آمریکا با ایران در شهرستان دلفان خبر داد. آلبوم را ورق بزنید و در این باره بیشتر بخوانید.
+
+📷 Mehr New Agency / IRIB
+https://bbc.in/4wOawOH
+@BBCPersian
+</div>
+
+## alonews — post 120170
+
+<div align="center">
+  <a href="telegram/content/alonews_120170_1778844267.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل دستور تخلیه به ساکنان: عین بعال، الخریب، الزراریه، عرب سلیم و عرب الجل (صیدا) در جنوب لبنان صادر کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120169
+
+<div align="center">
+  <a href="telegram/content/alonews_120169_1778844267.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگر 9 ماه پیش از بمب‌ افکن‌های B-2 استفاده نمی‌کردم، ایران اکنون می‌توانست به سلاح هسته‌ای دست یابد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120168
+
+<div align="center">
+  <a href="telegram/content/alonews_120168_1778844267.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: به رئیس جمهور چین گفتم در مورد پرونده تایوان صحبت نمی کنم
+
+
+🔴چینی ها عملیات جاسوسی انجام می دهند و ما نیز عملیات جاسوسی انجام می دهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120167
+
+<div align="center">
+  <a href="telegram/content/alonews_120167_1778844267.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: میتوانیم نیروگاه‌های ایران را تنها در دو روز از بین ببریم
+
+
+🔴اگر ایران اورانیوم های غنی شده خودش رو تحویل نده وارد ایران میشیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120166
+
+<div align="center">
+  <a href="telegram/content/alonews_120166_1778844268.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما ارتش ایران را نابود کرده‌ایم و شاید باید یک پاکسازی سبک انجام دهیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 14:45
 ---
 
