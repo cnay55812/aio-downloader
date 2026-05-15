@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 10:45
+---
+
+## WithYashar — post 11263
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11263_1778829350.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar منتظر ری اکشننن
+</div>
+
+## FoxNewsTwitter — post 341767
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341767_1778829352.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump gives a fist pump as he departs China after a series of crucial meetings with President Xi Jinping on the Iran war, trade tensions, technology, and Taiwan.
+
+Ahead of his departure, Trump met with Xi and expressed optimism about hosting him in the U.S. this September.
+
+“You're going to walk away hopefully very impressed, like I'm very impressed with China."
+</div>
+
+## FarsiVOA — post 217805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ پکن را به مقصد واشنگتن ترک کرد
+
+▪️دونالد ترامپ، رئیس‌جمهور آمریکا روز جمعه با پایان دادن به سفر سه‌روزه خود به چین، سوار بر هواپیمای ایر فورس وان شد و پکن را به مقصد واشنگتن ترک کرد.
+
+▪️سفر سه‌روزه ترامپ به چین شامل یک ضیافت رسمی دولتی، بازدید از مکان‌های تاریخی، صرف چای دوجانبه و یک ناهار کاری بود.
+
+▪️دو روز گفت‌وگو میان رئیس‌جمهور آمریکا و رهبر چین تاکنون به توافق‌هایی منجر شده و مقام‌ها اشاره کرده‌اند که ممکن است توافق‌های بیشتری در ادامه حاصل شود.
+
+▪️رئیس‌جمهور آمریکا روز جمعه اعلام کرد که او درباره ایران با شی گفت‌وگو کرده و هر دو رهبر درباره عدم دستیابی تهران به سلاح هسته‌ای و باز بودن تنگه‌ها نظر مشابهی دارند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150366.html
+</div>
+
+## BBCPersian — post 281117
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281117_1778829355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اکنون گزارشی از رسانه‌های دولتی چین درباره دور نهایی گفت‌وگوها میان شی جین‌پینگ، رهبر چین و دونالد ترامپ، رئیس جمهور آمریکا در ژونگ‌نان‌های منتشر شده است.
+
+شی جین‌پینگ این دیدار را «تاریخی و مهم» توصیف کرده و گفته است دو رهبر «جایگاه جدیدی برای روابط سازنده، استراتژیک و باثبات» میان دو کشور خود ایجاد کرده‌اند.
+
+او در ادامه گفته است: «رئیس‌جمهور ترامپ امیدوار است آمریکا را دوباره بزرگ کند و من نیز متعهد هستم مردم چین را برای تحقق احیای عظمت ملت چین رهبری کنم» و افزوده که دو طرف باید «اجماع مهم» حاصل‌شده را اجرا کنند.
+
+در همین حال، بر اساس روایت رسانه‌های چینی، آقای ترامپ این سفر را «بسیار موفق، شناخته‌شده در سطح جهانی و فراموش‌نشدنی» توصیف کرده و شی جین‌پینگ را «دوستی قدیمی» خوانده و گفته است: «احترام زیادی برای او قائلم.»
+
+او همچنین گفته است که مایل است «ارتباط صمیمانه و عمیق را با شی جین‌پینگ حفظ کند و مشتاق است میزبان او در واشنگتن باشد.»
+
+📸 Reuters
+
+https://bbc.in/3R12525
+@BBCPersian
+</div>
+
+## alonews — post 120092
+
+<div align="center">
+  <a href="telegram/content/alonews_120092_1778829356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ هم اکنون چین را ترک کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120091
+
+<div align="center">
+  <img src="telegram/content/alonews_120091_1778829356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخفیف ویژه فقط گیگی 170 با تست رایگان ✅
+اول تست کن، بعد با خیال راحت خرید کن!
+
+❌ دیگه چرا گیگی ۵۰۰ تا ۶۰۰ بدی؟!
+اونم بدون اینکه بدونی کیفیتش چطوره 😐
+
+⚡️ تخفیف ویژه محدود ⏳
+فقط تا پایان امشب
+
+🌍 آی‌پی استار واقعی + پینگ عالی
+🛡 ضمانت بازگشت وجه بدون شرط
+🚀 اتصال پایدار و بدون قطعی
+
+خرید آنی از ربات :
+
+Id : @LexVipBot
+تایم سرورامون نامحدوده❤️
+
+Link chanel : @lex_server
+
+رایگان گذاشته میشه هرشب تو‌چنل بالا از دست ندید👌
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 10:34
 ---
 
