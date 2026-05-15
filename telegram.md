@@ -7,6 +7,76 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 11:14
+---
+
+## WithYashar — post 11265
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «وقتی رئیس‌جمهور شی با بیانی بسیار سنجیده از ایالات متحده به‌عنوان کشوری که شاید در حال افول باشد یاد کرد، منظور او آسیب عظیمی بود که ما در چهار سال دوران جو بایدنِ خواب‌آلود و دولت بایدن متحمل شدیم؛ و در این مورد، او صددرصد درست می‌گفت. کشور…
+</div>
+
+## FoxNewsTwitter — post 341768
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341768_1778831066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump departed China aboard Air Force One, wrapping up his two-day summit with Chinese President Xi Jinping.
+
+A brief ceremony was held on the tarmac before his return flight to the U.S.
+
+Trump touted “fantastic trade deals” following his meetings and said the two leaders were aligned on Iran.
+</div>
+
+## IranIntlTV — post 337272
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337272_1778831068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال با مقایسه قطع اینترنت در ایران و غزه گفت که در مورد غزه مواضع جهانی دیده شد. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## Dirty_Kids — post 389481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش حداقل خودمون ریده بودیم تو زندگیمون. درس خوندیم، کار کردیم، زحمت کشیدیم و نهایتا دستاوردش چی بوده؟ کیرخر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389480
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389480_1778831071.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیدوارم برسه به دست ترامپ.
+عمویم خریت بچه ‌شیعه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120098
+
+<div align="center">
+  <a href="telegram/content/alonews_120098_1778831071.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 آموزش و پرورش: امتحانات پایه‌های هفتم تا دهم با مجوز شورای تأمین هر استان و بصورت حضوری یا غیر حضوری برگزار می‌شه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 11:05
 ---
 
