@@ -7,6 +7,228 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 23:24
+---
+
+## VahidOOnLine — post 240376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- جمعه ۲۵ اردیبهشت:
+
+🔹روز ۲۰ اردیبهشت رفتم در ملایر دیسک صفحه ماشین بگیرم، قیمت گفت ۶ میلیون تومان، فردایش برای خرید قطعی مراجعه کردم؛ همان را گفت ۱۲ میلیون شده است. قیمت یک قلم جنس در یک روز دو برابر شد.
+
+🔹یک کیلو قهوه گلد را که تا هفته قبل در تهران می‌خریدیم یک میلیون و ۷۰۰ هزار تومان، می‌خریدم امروز خریدم ۵ میلیون و ۳۰۰ هزار تومان!
+
+🔹من یک نقاشم و تنها دلخوشی‌ام نقاشی بود. الان توان خرید بوم ندارم که هیچ، حتی مقوایی که هفته پیش خریدم ۲۵۰ هزار تومان هم این هفته شده ۳۲۰ هزار تومن! مدام باید با ترس خراب‌نکردن و هدر ندادن ابزار و مواد اولیه، نقاشی کنم.
+
+🔹کشاورز هستم. سهمیه کود نسبت به پارسال تقریبا نصف شده و وقتی سهمیه جدید می‌آید کلا دو سه روز مهلت خرید دارد. اگر کسی توانایی خرید نداشته باشد، سهمش می‌سوزد. دولت هم سهم کود دولتی آن فرد را به صورت آزاد می‌فروشد.
+
+🔹بنزین کارت آزاد ۵ هزار تومنی، از ساعت ۹ صبح به بعد دیگر موجود نیست.
+
+🔹یک شانه تخم‌مرغ خریدم ۶۰۰ هزار تومان. دیگر حتی نمی‌شود یک وعده غذای ساده خورد.
+
+🔹قبض برق که هر دوره برای ما ۱۲۰ هزار تومان صادر می‌شد این بار شده یک میلیون و ۲۰۰ هزار تومان، تازه همراه با تهدید قطع فوری!
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11332
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11332_1778874859.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏مایک والتز، سفیر آمریکا در سازمان ملل ، می‌گوید که یکی از «نتایج بزرگ» سفر ترامپ به چین این بود که چین موافقت کرده از ایران فاصله بگیرد.
+@withyashar
+</div>
+
+## WithYashar — post 11331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عبری :
+
+گویا ترامپ با یک حمله محدود جهت فشار بر سر تسلیم شدن موافقت کرده است
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341796
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341796_1778874860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: EXCLUSIVE: @DAGToddBlanche responds as feds charge Iraqi national with plotting to ‘terrorize’ Americans and Jews in retaliation for military action against Iran
+</div>
+
+## FoxNewsTwitter — post 341795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more:
+</div>
+
+## FoxNewsTwitter — post 341792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: An Iraqi national and senior member of a U.S.-designated terror organization was arrested and brought to New York to face trial on federal terrorism charges.
+
+Mohammad Baqer Saad Dawood al-Saadi is accused of coordinating nearly 20 terror attacks in Europe and plotting additional attacks on U.S. soil.
+
+The suspect is accused of directing strikes on behalf of Iran-backed Islamist group Ashab al-Yamin since March.
+
+The FBI said it took action after learning that al-Saadi was planning to expand Ashab al-Yamin’s operations to the U.S., allegedly directing individuals to coordinate American terror attacks against synagogues and other Jewish institutions across the country.
+</div>
+
+## pm_afshaa — post 90809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخرین رهبران تروریست باقی مانده از ستاد کل شاخه نظامی رضوان و حماس محمد عوده، رئیس اداره اطلاعات، و عماد آکل، رئیس ستاد جبهه داخلی توسط جنگنده های اسراییل به هلاکت رسیدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- جمعه ۲۵ اردیبهشت:
+
+🔹روز ۲۰ اردیبهشت رفتم در ملایر دیسک صفحه ماشین بگیرم، قیمت گفت ۶ میلیون تومان، فردایش برای خرید قطعی مراجعه کردم؛ همان را گفت ۱۲ میلیون شده است. قیمت یک قلم جنس در یک روز دو برابر شد.
+
+🔹یک کیلو قهوه گلد را که تا هفته قبل در تهران می‌خریدیم یک میلیون و ۷۰۰ هزار تومان، می‌خریدم امروز خریدم ۵ میلیون و ۳۰۰ هزار تومان!
+
+🔹من یک نقاشم و تنها دلخوشی‌ام نقاشی بود. الان توان خرید بوم ندارم که هیچ، حتی مقوایی که هفته پیش خریدم ۲۵۰ هزار تومان هم این هفته شده ۳۲۰ هزار تومن! مدام باید با ترس خراب‌نکردن و هدر ندادن ابزار و مواد اولیه، نقاشی کنم.
+
+🔹کشاورز هستم. سهمیه کود نسبت به پارسال تقریبا نصف شده و وقتی سهمیه جدید می‌آید کلا دو سه روز مهلت خرید دارد. اگر کسی توانایی خرید نداشته باشد، سهمش می‌سوزد. دولت هم سهم کود دولتی آن فرد را به صورت آزاد می‌فروشد.
+
+🔹بنزین کارت آزاد ۵ هزار تومنی، از ساعت ۹ صبح به بعد دیگر موجود نیست.
+
+🔹یک شانه تخم‌مرغ خریدم ۶۰۰ هزار تومان. دیگر حتی نمی‌شود یک وعده غذای ساده خورد.
+
+🔹قبض برق که هر دوره برای ما ۱۲۰ هزار تومان صادر می‌شد این بار شده یک میلیون و ۲۰۰ هزار تومان، تازه همراه با تهدید قطع فوری!
+</div>
+
+## FarsiVOA — post 217854
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺واکنش نماینده آمریکا در سازمان ملل به ویدیوی آلودگی نفتی در سواحل ایران؛ جمهوری اسلامی «به محیط زیست نیز حمله می‌کند»
+
+◾️مایک والتز، نماینده آمریکا در سازمان ملل متحد، روز جمعه ویدیویی را که گفته می‌شود مربوط به آلودگی نفتی در سواحل ایران در خلیج فارس است، بازنشر کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150486.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217853
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️الهه و الناز محمدی، برنده جایزه «شجاعت در روزنامه‌نگاری» شدند؛ گفت‌و‌گو با سجاد شهرابی، گوینده رادیو و فعال حوزه رسانه، درباره اهمیت این جایزه برای تداوم فعالیت خبرنگاران مستقل در داخل ایران
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14211
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14211_1778874862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹فرزند عبدالرحیم موسوی
+
+💢جنازه پدرم که روز ا‌ول جنگ در دفتر خامنه ای کشته شد ،نزدیک به 30 روز زیر آوار حملات مانده بود
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157236
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157236_1778874862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸اسرائیل اعلام کرد در حملات هوایی روز جمعه به نوار غزه، عزالدین الحداد، فرمانده شاخه نظامی حماس در غزه، را هدف قرار داده است.
+
+🔸به گزارش رویترز، مقام‌های درمانی غزه گفتند در این حملات دست‌کم هفت فلسطینی، از جمله یک کودک و سه زن، کشته و حدود ۵۰ نفر زخمی شدند.
+
+🔸اسرائیل و حماس هنوز درباره سرنوشت الحداد اظهارنظر قطعی نکرده‌اند. او پس از کشته شدن محمد سنوار در سال ۲۰۲۵، فرماندهی شاخه نظامی حماس در غزه را بر عهده گرفته بود.
+
+🔸بنیامین نتانیاهو و اسرائیل کاتز، نخست‌وزیر و وزیر دفاع اسرائیل، در بیانیه‌ای مشترک، الحداد را از طراحان حمله ۱۵ مهر ۱۴۰۲ به اسرائیل معرفی کردند.
+
+🔸به گفته منابع پزشکی در غزه، یکی از حملات ساختمانی مسکونی در منطقه الرمال شهر غزه را هدف قرار داد و حمله‌ای دیگر یک خودرو را در خیابانی نزدیک منهدم کرد.
+
+🔸حملات جدید در حالی انجام شده که مذاکرات اسرائیل و حماس بر سر طرح پساجنگ آمریکا برای غزه همچنان بدون نتیجه مانده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی:
+
+جنازه پدرم ۳۰ روز زیر آوار حملات مونده بود.
+
+@IranianMinds
+</div>
+
+## alonews — post 120279
+
+<div align="center">
+  <a href="telegram/content/alonews_120279_1778874863.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ، محسن رضایی: قواعد نظم جدید جهان دیگه آمریکا محور نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120277
+
+<div align="center">
+  <a href="telegram/content/alonews_120277_1778874863.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهر صور تو "جنوب لبنان" بعد از حمله‌ی سنگین ارتش اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120276
+
+<div align="center">
+  <a href="telegram/content/alonews_120276_1778874864.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست : ایران واضح‌ترین بازنده دیدار ترامپ از پکن است، با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه «باید باز بماند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 23:14
 ---
 
