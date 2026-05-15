@@ -7,6 +7,70 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 07:43
+---
+
+## VahidOOnLine — post 240240
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240240_1778818424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه چین با اشاره به تنش‌های جاری میان جمهوری اسلامی و آمریکا، خواستار بازگشایی هرچه سریع‌تر کانال‌های گفت‌وگو و دستیابی فوری به «آتش‌بس جامع و پایدار» شد و تاکید کرد دستیابی سریع به یک راه‌حل سیاسی، به نفع تهران، واشینگتن و کشورهای منطقه است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341760
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341760_1778818424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+MOMENTS AGO: President Trump meets with President Xi Jinping in China https://twitter.com/i/broadcasts/1RJjpznjbDVKw
+</div>
+
+## IranIntlTV — post 337254
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337254_1778818425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه چین با اشاره به تنش‌های جاری میان جمهوری اسلامی و آمریکا، خواستار بازگشایی هرچه سریع‌تر کانال‌های گفت‌وگو و دستیابی فوری به «آتش‌بس جامع و پایدار» شد و تاکید کرد دستیابی سریع به یک راه‌حل سیاسی، به نفع تهران، واشینگتن و کشورهای منطقه است.
+https://iranintl.com/202605150200
+</div>
+
+## FarsiVOA — post 217796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگو با علی معموری و درویش رنجبر درباره مواضع چین و آمریکا در قبال شرایط تنگه هرمز
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگو با علی معموری و درویش رنجبر درباره موضع چین در قبال برنامه تسلیحاتی هسته‌ای جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157194
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157194" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۲۵ اردیبهشت ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 07:33
 ---
 
