@@ -7,6 +7,118 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 23:04
+---
+
+## VahidOOnLine — post 240374
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240374_1778873653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی، گفت که جنازه پدرش که در نخستین روز حملات اسرائیل و آمریکا به دفتر خامنه‌ای کشته شد، نزدیک به ۳۰ روز زیر آوار مانده بود.
+
+موسوی پس از کشته شدن محمد باقری در جنگ ۱۲ روزه، به‌عنوان رییس ستاد کل نیروهای مسلح منصوب شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 337378
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337378_1778873653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی، گفت که جنازه پدرش که در نخستین روز حملات اسرائیل و آمریکا به دفتر خامنه‌ای کشته شد، نزدیک به ۳۰ روز زیر آوار مانده بود.
+
+موسوی پس از کشته شدن محمد باقری در جنگ ۱۲ روزه، به‌عنوان رییس ستاد کل نیروهای مسلح منصوب شد.
+
+https://iranintl.com/202605151477
+</div>
+
+## Dirty_Kids — post 389522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوشته خرید حلقه ی نقره برای ازدواج رو نرمالایز کنید
+
+کشوری که نمیتونی یه حلقه طلا توش بخری، چرا باید توش ازدواج کنی؟!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏بنظرم اصن معلوم نمیکنه ترامپ از چین برگرده چی میشه الکی حدس نزنیم.
+بعید نیست یهو تایوان رو بده به ایران تنگه رو بده به لبنان روبیو رو بده به سمنان.
+هیچ بعید نیست
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389520
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389520_1778873654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایلان ماسک : اینستاگرام واسه دختراست؛
+
+
+بعضی وقت‌ها یسری مرد بالغ آیدی اینستاگرام‌شون رو واسه من می‌فرستن و من می‌پرسم: آیا داری تغییر جنسیت میدی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120273
+
+<div align="center">
+  <a href="telegram/content/alonews_120273_1778873654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفیر ایالات متحده مایک والتز ادعا می‌کند که «نتیجه بزرگ» سفر ترامپ به چین، موافقت چین با عقب‌نشینی از ایران بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120272
+
+<div align="center">
+  <a href="telegram/content/alonews_120272_1778873656.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امیر قطر و محمد بن سلمان، ولیعهد عربستان سعودی در یک گفت وگوی تلفنی درباره آخرین تحولات منطقه با یکدیگر گفتگو کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120271
+
+<div align="center">
+  <a href="telegram/content/alonews_120271_1778873656.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈۳۰ روز طول کشید تا جنازه عبدالرحیم موسوی، رئیس سابق ستاد کل نیروهای مسلح ایران، رو پیدا کنن
+
+
+🔴پسرش اینو به صداوسیما گفته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 22:54
 ---
 
