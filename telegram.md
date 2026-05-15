@@ -7,6 +7,159 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 20:34
+---
+
+## VahidOOnLine — post 240352
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240352_1778864682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی خریدهای خود را نشان می‌دهد و با اشاره به افزایش قیمت می‌گوید که برای یک شیر و چند قلم کالای دیگر ۴۵۰ هزار تومان پرداخت کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخرش مجبور به همین کار میشیم🫤
+</div>
+
+## WithYashar — post 11299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار خودت یه فراخوان بده بزنیم کارو تموم کنیم 😂🤦‍♂‌ دیگه نمیکشیم
+</div>
+
+## WithYashar — post 11297
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیداریم مثل پلنگ 😾💪🏾
+</div>
+
+## FoxNewsTwitter — post 341790
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341790_1778864683.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: Vice President JD Vance delivers a powerful tribute at the 45th Annual National Peace Officers' Memorial Service on Capitol Hill, honoring the "selflessness" of fallen heroes.
+
+Addressing the families and colleagues of the fallen, Vance characterized the life of a peace officer as one defined by an unwavering sense of duty.
+
+"We gather this afternoon to honor men and women who heard the exact same call, men and women whose selflessness led them toward danger when others fled. People who said, send me, not send somebody else, but send me. People whom service was a way of life, not a burden."
+</div>
+
+## FoxNewsTwitter — post 341789
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341789_1778864685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SpecialReport: TONIGHT at 6 PM ET: @BretBaier sits down with @POTUS for a full interview on @FoxNews during #SpecialReport. Watch live. #Trump #Interview
+</div>
+
+## IranIntlTV — post 337355
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337355_1778864687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی خریدهای خود را نشان می‌دهد و با اشاره به افزایش قیمت می‌گوید که برای یک شیر و چند قلم کالای دیگر ۴۵۰ هزار تومان پرداخت کرده است.
+</div>
+
+## FarsiVOA — post 217823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تلاش عراق برای دریافت وام از سازمان‌های بین‌المللی با ادامه بحران در تنگه هرمز
+
+▪️با ادامه یافتن بحران تنگه هرمز و کاهش شدید صادرات نفت عراق، این کشور که با کمبود درآمدهای ارزی مواجه است، اکنون تلاش می‌کند از دو نهاد مالی بین‌المللی - یعنی بانک جهانی و صندوق بین‌المللی پول - وام بگیرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iraq-export-oil-strait-hormuz/8150380.html/?nocach=1
+</div>
+
+## DW_Farsi — post 124737
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124737_1778864688.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 شکاف در گروه بریکس در پی جنگ ایران؛ عدم صدور بیانیه پایانی
+
+جنگ آمریکا و اسرائیل علیه جمهوری اسلامی ایران، کشورهای غیرغربی را نیز دچار اختلاف کرده است.
+
+نشست وزرای خارجه کشورهای عضو گروه بریکس در دهلی نو به خاطر اختلافات جدی میان ایران و امارات متحده عربی بدون صدور بیانیه مشترک، به پایان رسید.
+
+در این راستا تنها هند، به عنوان کشور میزبان بیانیه‌ای منتشر و در آن به وجود "دیدگاه‌های متفاوت" درباره وضعیت خاورمیانه اشاره کرد.
+ایران در این نشست خواستار محکومیت جنگ آمریکا و اسرائیل علیه کشور خود شد و همچنین امارات متحده عربی را به مشارکت مستقیم در عملیات نظامی متهم کرد.
+
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی در یک نشست خبری مدعی شد، "یکی از اعضای بریکس که نامش فاش نشده، بخش‌هایی از بیانیه را مسدود کرده است".
+
+عراقچی همچنین گفت: «ایران با این کشور خاص مشکلی ندارد بلکه صرفا پایگاه‌های نظامی ایالات متحده را هدف قرار می‌دهد که متاسفانه در خاک آن کشور واقع شده‌اند.»
+@dw_farsi
+</div>
+
+## IranianMinds — post 20204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امام جمعه کرج:
+
+بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ رو ادامه بدیم؛ مجازات اسرائیل، محو کردن کامل اونه.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281145
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با وصل شدن اندک اندک بعضی شهروندان ایران به اینترنت که بیش از دو ماه و نیم از قطع آن می‌گذرد، تصاویر جدیدی از  جنگ و آسیب‌های آن منتشر می‌شود.
+ 
+یکی از شهروندان به تازگی تصاویری از جزیره شیدور (مارو) در نزدیکی جزیره لاوان در اینستاگرامش منتشر کرده که نشان می‌دهد در پی حمله هوایی ۱۹ فروردین ۱۴۰۵ به پالایشگاه لاوان در خلیج فارس، آلودگی نفتی این منطقه و جانوران بومی آن را آلوده کرده است.
+
+مدیرکل حفاظت محیط زیست استان هرمزگان با تائید آلودگی نفتی در لاوان و مارو، ۱۰ اردیبهشت اعلام کرد این آلودگی نفتی «تبعات ماندگاری بر ساحل صخره‌ای و مرجان‌های این جزیره خواهد گذاشت.»
+@BBCPersian
+</div>
+
+## alonews — post 120233
+
+<div align="center">
+  <a href="telegram/content/alonews_120233_1778864689.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاهش چشمگیر تولید نفت کشورهای حاشیه خلیج فارس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120232
+
+<div align="center">
+  <a href="telegram/content/alonews_120232_1778864689.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ عبری: حزب‌الله در عرض یک ساعت و نیم، ۱۰ پهپاد به سمت اسرائیل پرتاب کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 20:24
 ---
 
