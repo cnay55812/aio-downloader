@@ -7,6 +7,128 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 22:54
+---
+
+## VahidOOnLine — post 240373
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240373_1778873082.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش فرانس۲۴، مقام‌های آمریکایی محمد باقر سعد داوود الساعدی، شهروند عراقی را به اتهام طراحی دست‌کم ۱۸ حمله «تروریستی» در اروپا در واکنش به جنگ آمریکا علیه جمهوری اسلامی بازداشت و متهم کردند.
+
+براساس این گزارش، او متهم است در حملاتی از جمله آتش‌زدن یک بانک در آمستردام و حمله با چاقو به چند مرد یهودی در لندن نقش داشته و ماه گذشته قصد حمله به یک کنیسه در نیویورک را داشته است. همچنین او تصاویر و نقشه‌هایی از مراکز یهودی در لس‌آنجلس و اسکاتسدیل آریزونا را در اختیار یک مامور مخفی قرار داده است.
+
+بر اساس این گزارش، او همچنین به مشارکت در دو حمله اخیر در کانادا، شامل حمله به یک کنیسه و تیراندازی به کنسولگری آمریکا در تورنتو در ماه مارس، متهم شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240372
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240372_1778873083.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ وزارت دادگستری ایالات متحده روز جمعه ۲۵ اردیبهشت، اعلام کرد که یک شهروند عراقی به نام «محمد باقر سعد داود الساعدی» را به اتهام طراحی حملات تروریستی در خاک آمریکا، از جمله هدف قرار دادن یک نهاد یهودی در نیویورک، بازداشت و متهم کرده است.
+
+بر اساس کیفرخواست صادر شده، الساعدی که از فرماندهان گروه «کتائب حزب‌الله» (گردان‌های حزب‌الله عراق) معرفی شده، متهم است که برای ارائه حمایت‌های لجستیکی و مادی به سازمان‌های تروریستی تحت حمایت جمهوری اسلامی، از جمله سپاه پاسداران و کتائب حزب‌الله، توطئه کرده است. دادستان‌ها می‌گویند که او در برنامه‌ریزی و اجرای حدود ۱۸ حمله تروریستی علیه منافع آمریکا و اسرائیل در اروپا از ماه مارس گذشته نقش داشته است.
+
+الساعدی متهم است که تلاش کرده یک مامور مخفی را برای مشارکت در حمله به یک کنیسه برجسته در نیویورک جذب کند و نقشه‌ها و تصاویر هدف را نیز در اختیار او قرار داده است. گزارش‌ها حاکی از آن است که سرویس اطلاعاتی بریتانیا نیز پیش از این در حال تحقیق روی این گروه بوده و از برنامه‌های آن‌ها برای گسترش حملات به خاک ایالات متحده آگاهی داشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9145
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9145_1778873084.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝این غولِ بیابانِ تزویر که تمام هیکلاش از سرنگ و سوزن به ارث رسیده، تهوع‌آورترین تصویر از سقوط یک انسان است. موجودی که با آن ریختِ کریه و مغزِ گنجشکی، خیال کرده با باد کردنِ عضلاتِ عاریه‌ای می‌تواند رویِ خونِ جوانانِ این مرز و بوم موج‌سواری کند. این انترِ قلاده‌به‌گردن، که بوی گندِ استروئید و تملق از سر و رویش می‌بارد، چیزی نیست جز یک ماله بدستِ حقیر که برای خوش‌خدمتی به اربابانش، حتی شرافتِ نداشته‌اش را هم به حراج گذاشته است.
+
+🔸تماشای این پهلوان‌پنبه‌یِ دوزاری که با ناله‌های تصنعی از «دردسر» حرف می‌زند، تهوع‌آور است؛ دردسر را آن‌هایی کشیدند که زیر چرخ‌دنده‌هایِ همان سیستمی که تو برایش دم تکان می‌دهی له شدند، نه تو که تمامِ همّ و غمت جابه‌جا کردنِ چند کیلو گوشتِ تلخ و تزریقی است. تو نه قهرمانی و نه مایه افتخار؛ تو صرفاً یک بازیچهٔ کرایه‌ای هستی که تاریخ به عنوانِ لکهٔ ننگی از آن یاد خواهد کرد؛ موجودی که حجمِ حماقتش از حجمِ بازوهایِ متعفنش فراتر رفته است. ننگ بر آن مدالی که رویِ سینهٔ لرزان و بی‌غیرتِ تو سنگینی کند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341791
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341791_1778873086.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A hero cop in Tennessee kicks down the door of a burning apartment building to rescue a mom and her two children from a blazing inferno – carrying out the four-year-old daughter in his arms.
+
+Newly released Ring camera footage shows the officer during the daring rescue.
+
+According to the Chattanooga Police Department, Officer Rogers rushed into the second-floor home after neighbors reported that people were trapped inside.
+
+No injuries were reported, and the fire was brought under control within 20 minutes as the family now raises money for relocation costs through a GoFundMe campaign.
+</div>
+
+## IranIntlTV — post 337377
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337377_1778873089.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش فرانس۲۴، مقام‌های آمریکایی محمد باقر سعد داوود الساعدی، شهروند عراقی را به اتهام طراحی دست‌کم ۱۸ حمله «تروریستی» در اروپا در واکنش به جنگ آمریکا علیه جمهوری اسلامی بازداشت و متهم کردند.
+
+براساس این گزارش، او متهم است در حملاتی از جمله آتش‌زدن یک بانک در آمستردام و حمله با چاقو به چند مرد یهودی در لندن نقش داشته و ماه گذشته قصد حمله به یک کنیسه در نیویورک را داشته است. همچنین او تصاویر و نقشه‌هایی از مراکز یهودی در لس‌آنجلس و اسکاتسدیل آریزونا را در اختیار یک مامور مخفی قرار داده است.
+
+بر اساس این گزارش، او همچنین به مشارکت در دو حمله اخیر در کانادا، شامل حمله به یک کنیسه و تیراندازی به کنسولگری آمریکا در تورنتو در ماه مارس، متهم شده است.
+https://iranintl.com/202605155558
+</div>
+
+## FarsiVOA — post 217850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️توقف تجارت دریایی جمهوری اسلامی؛ روابط اسرائیل با امارات زیر سایه تهدیدهای رژیم ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217849
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از مایکل لیپین، ‌خبرنگار صدای آمریکا، از پکن درباره سفر تاریخی دونالد ترامپ، رئیس جمهوری آمریکا، به چین.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺طرح سناتور کاتن: محرومیت بستگان تروریست‌ها از سفر و اقامت در آمریکا قانونی و قطعی می‌شود
+
+◾️تام کاتن، سناتور جمهوری‌خواه، روز جمعه ۲۵ اردیبهشت گفت طرحی را ارائه کرده است که در صورت تصویب در کنگره، همه ویزاهای صادرشده برای اعضای «خانواده تروریست‌ها» لغو و صدور ویزاهای جدید برای آنها ممنوع می‌شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/senator-cotton-tom-visa-immigration-terrorist-congress-iran/8150453.html
+@FarsiVOA
+</div>
+
+## alonews — post 120270
+
+<div align="center">
+  <a href="telegram/content/alonews_120270_1778873090.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت جدید و عجیب ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 22:44
 ---
 
