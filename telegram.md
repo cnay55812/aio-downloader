@@ -7,6 +7,39 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 08:14
+---
+
+## FoxNewsTwitter — post 341763
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341763_1778820276.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump tours Zhongnanhai Garden with Chinese President Xi Jinping.
+</div>
+
+## FarsiVOA — post 217801
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217801_1778820279.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش فرهاد فلاحی، خبرنگار بخش فارسی صدای آمریکا، از تدابیر امنیتی در چین و محدودیت‌های رسانه‌ای
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌و‌گو با شاهین نژاد درباره ابعاد سیاسی و اقتصادی سفر پرزیدنت ترامپ به چین
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 08:03
 ---
 
