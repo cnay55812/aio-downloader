@@ -7,6 +7,183 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 19:24
+---
+
+## VahidOOnLine — post 240338
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240338_1778860456.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدمهدی حسینی‌همدانی، امام جمعه کرج، ۲۵ اردیبهشت در نماز جمعه این شهر گفت: بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ را ادامه داد و تاکید کرد مجازات اسرائیل، محو کامل آن است.
+
+او همچنین اطاعت از مجتبی خامنه‌ای را عامل پیروزی خواند و گفت باید عوامل نافرمانی را از میان برداشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9135
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9135_1778860457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇦🇪به همین دلیل است که امارات متحده عربی با شدت به‌دنبال توسعه خط لوله حبشان است.
+🔹صادرات این کشور از ابوظبی و الرویس تقریباً به صفر نزدیک شده است.
+❗️در بیش از ۳۰ روز گذشته تعداد بسیار کمی نفتکش در این بنادر پهلو گرفته‌اند.
+🔸در نتیجه، برای جلوگیری از آسیب‌های ناشی از توقف تولید (shut-in)، امارات ناچار شده در چندین ایستگاه پمپاژ نفت و گاز به‌طور گسترده اقدام به سوزاندن گاز (فلرینگ) کند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341785
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341785_1778860457.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S. Marshals Director Gadyaces Serralta reveals the massive success of the D.C. Safe Task Force, reporting a dramatic drop in violent crime across the nation's capital.
+
+The task force has made nearly 13,000 arrests and seized over 1,400 illegal firearms in just nine months, leading to a 35% decrease in murders.
+
+"The D.C. Safe Task Force has seized over 1400 illegal firearms, preventing countless violent crimes in our nation's capital. Murders are down more than 35%, and overall crime is down 26%. The violent carjackings that once plagued this city are rare and will be over because we are not done."
+</div>
+
+## FoxNewsTwitter — post 341784
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341784_1778860459.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Cardinal Dolan delivers a heartfelt message to the New York faithful during a golden jubilee Mass, crediting his priesthood to God and the support of his community.
+
+The Cardinal reflected on nearly two decades of service, calling the people of New York his "family" and offering a humble assessment of his many years in the church.
+
+"After 17 happy years, you're my family, you're my friends, and I love you, and I thank you. I thank you so much... Without Jesus, I could've done nothing. Without you, none of the meager accomplishments you so graciously pointed out could've ever happened."
+</div>
+
+## FoxNewsTwitter — post 341783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/politics/longtime-democratic-rep-steve-cohen-announces-end-re-election-bid
+</div>
+
+## FoxNewsTwitter — post 341782
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341782_1778860460.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: The FIFA World Cup is less than a month away, and the FBI says it’s training officers to use electronic defense capabilities that can intercept drones over stadiums.
+
+Fox News got behind-the-scenes access to the FBI’s Redstone facility in Huntsville, where agents demonstrated how they jam and hijack suspicious drones to redirect them away from sensitive sites.
+
+@foymeetsworld reports the latest on the ground in Alabama. | @GillianHTurner @AmericaNewsroom
+</div>
+
+## FoxNewsTwitter — post 341781
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341781_1778860462.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: U.S. Attorney Jeanine Pirro unveils safety plans for America 250 events https://twitter.com/i/broadcasts/1PKqrEmdrknGb
+</div>
+
+## IranIntlTV — post 337342
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337342_1778860463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدمهدی حسینی‌همدانی، امام جمعه کرج، ۲۵ اردیبهشت در نماز جمعه این شهر گفت: بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ را ادامه داد و تاکید کرد مجازات اسرائیل، محو کامل آن است.
+
+او همچنین اطاعت از مجتبی خامنه‌ای را عامل پیروزی خواند و گفت باید عوامل نافرمانی را از میان برداشت.
+https://iranintl.com/202605155975
+</div>
+
+## DW_Farsi — post 124734
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124734_1778860463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 گفت‌وگوی تلفنی مرتس و ترامپ پس از هفته‌ها تنش؛ تفاهم درباره نحوه ادامه اقدام علیه ایران
+
+سکوت خبری میان دونالد ترامپ و فریدریش مرتس پس از هفته‌ها تنش‌ بر سر اظهارات صدراعظم آلمان درباره جنگ ایران پایان یافت.
+مرتس اعلام کرد که در طی سفر بازگشت ترامپ از چین به‌صورت تلفنی با او گفت‌وگو کرده است. صدراعظم آلمان با انتشار پیامی در شبکه اجتماعی ایکس این گفت‌وگو را "خوب" توصیف و بر وجود تفاهم و اشتراک نظر درباره نحوه ادامه اقدام در مسئله ایران تاکید کرد.
+
+مرتس درباره این گفت‌وگو نوشت: «ما با هم هم‌نظر هستیم. ایران اکنون باید به میز مذاکره بازگردد. تنگه هرمز باید بازگشایی شود و تهران نباید به سلاح هسته‌ای دست یابد.»
+
+ترامپ روز جمعه ۱۵ مه (۲۵ اردیبهشت) سفر خود به چین را به پایان رساند. به گفته او، "شی جین‌پینگ تمایل خود را برای کمک به بازگشایی تنگه هرمز ابراز کرده و همچنین تعهد داده از ایران به‌صورت نظامی حمایت نکند".
+@dw_farsi
+</div>
+
+## RadioFarda — post 157227
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157227_1778860464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مولوی عبدالحمید اسماعیل‌زهی، امام جمعه اهل سنت زاهدان، روز جمعه ۲۵ اردیبهشت از افزایش اعدام‌ها در ایران انتقاد کرد و خواستار توقف «اعدام‌های سیاسی» شد.
+
+🔸او در سخنرانی نماز جمعه زاهدان گفت این اعدام‌ها «به خیر کشور و به مصلحت حاکم و مردم نیستند» و افزود اعدام راه‌حل مشکلات کشور نیست.
+
+🔸مولوی عبدالحمید همچنین با انتقاد از «اعتراف اجباری» در بازداشتگاه‌ها گفت چنین اعترافاتی با شریعت اسلام، قانون اساسی ایران و قوانین بین‌المللی «مطابقت ندارد» و نباید مبنای صدور حکم قرار گیرد.
+
+🔸از زمان حملات آمریکا و اسرائیل به ایران، جمهوری اسلامی اجرای احکام اعدام را افزایش داده است و در برخی روزها چند نفر را اعدام کرده است.
+
+🔸بر اساس گزارش مشترک سازمان «حقوق بشر ایران» مستقر در نروژ و سازمان «با هم علیه مجازات اعدام» مستقر در پاریس، که ۲۴ فروردین امسال منتشر شد، ایران در سال ۲۰۲۵ دست‌کم «یک هزار و ۶۳۹ نفر» را اعدام کرده‌ است. این «بالاترین» تعداد اعدام طی یک‌سال در ایران از سال ۱۳۶۸ تاکنون است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20195
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20195_1778860464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار نیویورک‌‌پست:
+
+اعضای هیئت امریکایی همراه ترامپ، قبل از سوار شدن به ایر‌فورس‌وان و ترک چین، همه هدیه‌هایی که چینی‌ها بهشون داده بودند رو درون سطل زباله ریختند.
+
+@IranianMinds
+</div>
+
+## alonews — post 120223
+
+<div align="center">
+  <a href="telegram/content/alonews_120223_1778860465.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرمانده سنتکام گزارش‌ها درباره باقی ماندن توان موشکی جمهوری اسلامی را رد کرد
+
+
+وال استریت ژورنال گزارش داد فرمانده سنتکام ادعاهای منتشرشده درباره باقی ماندن بخش بزرگی از موشک‌ها و پرتابگرهای جمهوری اسلامی را رد کرده است.
+
+پیشتر واشنگتن پست نوشته بود ایران هنوز حدود ۷۵ درصد پرتابگرهای متحرک و حدود ۷۰ درصد ذخایر موشکی پیش از جنگ را در اختیار دارد، اما فرمانده سنتکام این روایت را زیر سوال برده است.
+
+این تناقض مهم است، چون جنگ فقط با موشک و پهپاد ادامه ندارد، با عددسازی و تصویرسازی هم ادامه پیدا میکند. جمهوری اسلامی میخواهد نشان دهد هنوز دست بالا را دارد، اما واشنگتن تلاش میکند بگوید ستون تهدید موشکی تهران ضربه جدی خورده و دیگر مثل قبل قابل اتکا نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 19:14
 ---
 
