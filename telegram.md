@@ -7,6 +7,279 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 12:14
+---
+
+## VahidOOnLine — post 240266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️لاوروف در نشست بریکس: ایران عامل انسداد تنگه هرمز نیست، می‌خواهند بین تهران و همسایگانش تفرقه ایجاد کنند
+
+♦️سرگئی لاوروف، وزیر امور خارجه روسیه، روز جمعه ۲۵ اردیبهشت  با انتقاد از رویکرد «غرب» در خلیج فارس، گفت: «ریشه اصلی تنش‌های منطقه تجاوز بی‌دلیل آمریکا و اسرائیل علیه ایران» است.
+
+سرگئی لاوروف که برای شرکت در نشست وزاری امور خارجه کشورهای عضو بریکس در دهلی نو حضور دارد گفت: «تا پیش از آغاز جنگ در اسفند ماه گذشته، امنیت دریانوردی در تنگه هرمز به صورت ۱۰۰ درصدی تضمین شده بود و ایران هرگز عامل ایجاد مشکل در این آبراه نبوده است.»
+
+براساس گزارش‌های غیررسمی، روسیه در جریان جنگ و پیش از آتش‌بس به جمهوری اسلامی کمک‌های اطلاعاتی ارائه می‌داده است. روابط نظامی و امنیتی تهران و مسکو از زمان جنگ اوکراین دوچندان شده است.
+
+ لاروف بار دیگر گفت یکی از اهداف آمریکا و اسرائیل در جنگ با جمهوری اسلامی «ایجاد تفرقه میان ایران و همسایگان عربش» است و با اشاره به تلاش‌های دیپلماتیک جاری، از نقش پاکستان در تسهیل گفتگو میان ایران و آمریکا و همچنین پتانسیل هند به عنوان میانجی برای بهبود روابط ایران و کشورهای عربی به دلیل اعتبار و نفوذ دیپلماتیک دهلی‌نو حمایت کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11270
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar part3
+</div>
+
+## WithYashar — post 11269
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11269_1778834674.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂🙌🏾 @withyashar
+</div>
+
+## DEJradio — post 4640
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4640_1778834675.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 تهدید هسته‌ای تهران و هشدارهای ترامپ
+
+گفت‌وگو با شایان سمیعی، کارشناس امنیت ملی
+
+#ترامپ #تهران
+@DEJradio
+</div>
+
+## IranIntlTV — post 337281
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337281_1778834675.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۱ اسرائیل به نقل از منابع اسرائیلی و آمریکایی گزارش داد اسرائیل در پیامی روشن به واشینگتن، خواستار بازگشت به درگیری با جمهوری اسلامی شده است.
+
+جزییات بیشتر در گزارش بابک اسحاقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6008
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6008_1778834677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Fri, 15 May 2026 08:02:32 UTC The Tanker Shuffle Continues #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- As has been the case on most days during the ceasefire, the US tanker fleet (numbering over 220 aircraft)…
+</div>
+
+## Shin_Persian — post 6007
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Fri, 15 May 2026 08:02:32 UTC
+
+The Tanker Shuffle Continues #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+As has been the case on most days during the ceasefire, the US tanker fleet (numbering over 220 aircraft) across Europe and CENTCOM continues to shuffle around, with harder worked airframes being rotated out and replaced. So far today:
+
+KC-135R "RCH736" 57-1486 #AE041D (EGUN -> LLBG)
+KC-135R "?" 61-0300 #AE0689 (LLBG -> EDDS)
+KC-135R "RCH314" 62-3521 #AE0485 (LFOA -> EDDS -> ?)
+KC-135T "RCH559" 59-1471 #AE07A5 (CONUS -> EDDS)
+
+@MATA_osint
+
+فارسی
+
+جابه‌جایی تانکرهای سوخت‌رسان ادامه دارد #FreeIran‌
+--- عملیات خشم حماسی (Operation EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
+
+همانطور که در اکثر روزهای آتش‌بس صادق بوده است، ناوگان تانکرهای ایالات متحده (با بیش از ۲۲۰ هواپیما) در سراسر اروپا و سنتکام (ستاد فرماندهی مرکزی ایالات متحده - CENTCOM) به جابه‌جایی‌های خود ادامه می‌دهند و بدنه‌های پروازی که فشار کاری بیشتری داشته‌اند، از چرخه خارج و جایگزین می‌شوند. موارد ثبت شده تا این لحظه از امروز:
+
+KC-135R "RCH736" 57-1486 #AE041D (فرودگاه ای‌جی‌یو‌ان -> فرودگاه بن گوریون)
+KC-135R "?" 61-0300 #AE0689 (فرودگاه بن گوریون -> فرودگاه اشتوتگارت)
+KC-135R "RCH314" 62-3521 #AE0485 (پایگاه هوایی اورو -> فرودگاه اشتوتگارت -> ?)
+KC-135T "RCH559" 59-1471 #AE07A5 (ایالات متحده -> فرودگاه اشتوتگارت)
+
+@MATA_osint
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 20171
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20171_1778834678.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک پست:
+
+اف‌بی‌آی جایزه‌ای ۲۰۰ هزار دلاری برای دستگیری مونیکا ویت، مأمور سابق اطلاعات نیروی هوایی آمریکا که از سال ۲۰۱۹ متهم به جاسوسی برای ایران است، اعلام کرده است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20170
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20170" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20169
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20169_1778834679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+re25
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 20168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+نابودی نظامی ایران ادامه خواهد داشت
+
+@IranianMinds
+</div>
+
+## alonews — post 120117
+
+<div align="center">
+  <a href="telegram/content/alonews_120117_1778834680.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره: تهران به‌طور رسمی پاسخ واشنگتن به پیشنهاد خود را دریافت کرده است و ایالات متحده تمامی شروط ایران را رد کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120116
+
+<div align="center">
+  <a href="telegram/content/alonews_120116_1778834680.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امارات ظرفیت صادرات نفت بدون عبور از تنگه هرمز را دو برابر می‌کند
+
+
+
+🔴امارات متحده عربی اعلام کرد تا سال ۲۰۲۷ ظرفیت صادرات نفت خام خود بدون نیاز به عبور از تنگه هرمز را دو برابر خواهد کرد.
+
+
+🔴بر اساس گزارش‌ها: شرکت ملی نفت ابوظبی در حال ساخت خط لوله جدیدی به بندر فجیره در دریای عمان است
+
+
+🔴هدف این پروژه کاهش وابستگی به تنگه هرمز عنوان شده است
+
+
+🔴بسته‌شدن مسیر هرمز در جریان جنگ اخیر علیه ایران، بازارهای جهانی را دچار بحران کرده است.
+
+
+🔴امارات هم‌اکنون نیز یک خط لوله با ظرفیت روزانه ۱.۵ میلیون بشکه از میادین نفتی داخلی به بندر فجیره در اختیار دارد.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120115
+
+<div align="center">
+  <a href="telegram/content/alonews_120115_1778834680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی : مشکل اصلی اینه که آمریکا هر روز یه حرف می‌زنه و پیام‌های ضدونقیض می‌فرسته
+
+
+🔴در مورد ایران هیچ راه‌حل نظامی‌ای جواب نمی‌ده
+
+
+🔴 این همه مدت هی تهدید کردن، ولی نه نتیجه‌ای گرفتن نه از جنگی که راه انداختن چیزی گیرشون اومد
+
+
+🔴هرچی بیشتر تهدید کنن، بیشتر شکست می‌خورن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120114
+
+<div align="center">
+  <a href="telegram/content/alonews_120114_1778834682.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هواپیماهای باری نظامی آذربایجان از طریق حریم هوایی ترکیه به سمت تل آویو در حرکت هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120113
+
+<div align="center">
+  <a href="telegram/content/alonews_120113_1778834682.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنوب لبنان، ساعاتی قبل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 12:04
 ---
 
