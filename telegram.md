@@ -7,6 +7,128 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 00:25
+---
+
+## VahidOOnLine — post 240380
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240380_1778878530.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش نیویورک تایمز، روز جمعه ۲۵ اردیبهشت به نقل از دو مقام خاورمیانه‌ای نوشت ایالات متحده و اسرائیل در حال انجام تدارکات فشرده برای احتمال ازسرگیری حملات علیه جمهوری اسلامی، حتی از اوایل هفته آینده، هستند. این تحرکات، بزرگ‌ترین تدارکات جنگی دو کشور از زمان اجرایی شدن آتش‌بس در ۱۸ فروردین به شمار می‌رود. هم‌زمان، پیت هگست، وزیر دفاع آمریکا، در کنگره اعلام کرد که پنتاگون علاوه بر طرح افزایش تنش، برنامه‌ای نیز برای بازگرداندن بیش از ۵۰ هزار نیروی اعزامی به خاورمیانه به شرایط استقرار استاندارد دارد. این آمادگی‌ها در حالی صورت می‌گیرد که دونالد ترامپ با «غیرقابل قبول» خواندن آخرین پیشنهاد صلح تهران، هشدار داده است که ایران یا باید توافق کند یا با نابودی نظامی روبرو خواهد شد.
+نیویورک تایمز به نقل از مقام‌های اطلاعاتی آمریکا نوشت جمهوری اسلامی دوباره به بخش عمده‌ای از پایگاه‌های موشکی، پرتابگرها و تاسیسات زیرزمینی خود دسترسی پیدا کرده و همچنین دسترسی عملیاتی به ۳۰ پایگاه از ۳۳ پایگاه موشکی خود در امتداد تنگه هرمز را بازیابی کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب حمله‌ست؟
+</div>
+
+## WithYashar — post 11341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب حمله‌ست؟
+</div>
+
+## IranIntlTV — post 337390
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337390_1778878531.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماه‌ها پس از اعتراضات دی‌ماه و در شرایطی که بخشی از جامعه نسبت به تغییرات ناامید شده، برخی هنرمندان همچنان تلاش می‌کنند صدای امید و همراهی با معترضان را زنده نگه دارند. در تازه‌ترین نمونه، ابی و شاهین نجفی با انتشار قطعه مشترک «شاهراه» از مقاومت، امید و ادامه مسیر گفته‌اند.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6021
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6021_1778878533.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Open Source Intel ✓ @Osint613
+Fri, 15 May 2026 19:06:22 UTC
+
+Four assistants to Haddad were killed inside a vehicle as they attempted to escape from the apartment used as his hiding location.
+
+فارسی
+
+چهار دستیار حداد در حالی که قصد داشتند با خودرویی از آپارتمانی که به عنوان مخفیگاه او استفاده می‌شد فرار کنند، کشته شدند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6020
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6020_1778878534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Waleed Gadban ✓ @GadbanWaleed
+Fri, 15 May 2026 17:28:51 UTC
+
+در تصویر: ترور تروریست ارشد حماس.
+
+احمد وحیدی، داری نگاه می‌کنی؟
+
+English
+
+In the image: The assassination of a senior Hamas terrorist.
+
+Ahmad Vahidi, are you watching?
+
+𝕏 · @shin_persian
+</div>
+
+## Dirty_Kids — post 389525
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389525_1778878535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389524
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389524_1778878535.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوب شد به حرف این 👆 گوش ندادن، اگه گوش میدادن الان موشعلی و فرمانده‌هاشو زنده بودن
+
+ولی بجاش رفتن به حرف رافئی‌پور و خوش‌چشم گوش دادن همشون کتلت شدن:)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120287
+
+<div align="center">
+  <a href="telegram/content/alonews_120287_1778878536.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گلایه مخاطب ایران اینترنشنال از قیمت نجومی عرق سگی
+
+
+🔴قبل جنگ لیتری ۲۵۰بود و با دوستام میخوردم اما الان لیتری ۱۵۰۰ و تنها میخورم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 00:14
 ---
 
