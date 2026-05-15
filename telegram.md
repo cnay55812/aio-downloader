@@ -7,6 +7,212 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 12:04
+---
+
+## VahidOOnLine — post 240265
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240265_1778834050.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال که دانش‌آموز پایه دهم انسانی است می‌گوید با وجود نهایی نبودن امتحان‌های امسال، نگران سال آینده است، چون به گفته او کیفیت آموزش و شرایط یادگیری در سال جاری «افتضاح» بوده و دانش‌آموزان عملا چیزی یاد نگرفته‌اند. او می‌گوید در مدرسه غیردولتی تحصیل می‌کند.
+این پیام با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240264
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240264_1778834051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای دولت ابوظبی روز جمعه ۲۵ اردیبهشت اعلام کرد امارات متحده عربی ساخت یک خط لوله نفتی تازه را برای افزایش صادرات از مسیر فجیره تسریع می‌کند.
+
+این پروژه قرار است تا سال ۲۰۲۷ ظرفیت صادرات نفت امارات از فجیره را دو برابر کند و توان این کشور برای دور زدن تنگه هرمز را افزایش دهد.
+
+فجیره در ساحل دریای عمان قرار دارد و نفتکش‌ها از این مسیر می‌توانند بدون عبور از تنگه هرمز بارگیری کنند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240263
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240263_1778834051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه ناظر اینترنتی نت‌بلاکس اعلام کرد قطعی اینترنت در ایران امروز وارد هفتادوهفتمین روز خود شده و از مرز ۱۸۲۴ ساعت گذشته است.
+نت‌بلاکس هشدار داده ادامه این محدودیت‌ها می‌تواند به یک خطر فزاینده برای سلامت روان شهروندان تبدیل شود؛ شهروندانی که تا حد زیادی از پلتفرم‌های آنلاین، ارتباطات و تعامل عادی با جهان خارج محروم شده‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240262
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240262_1778834052.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، پس از پایان سفر دو روزه خود به چین، روز جمعه پکن را ترک کرد.
+ترامپ با هواپیمای اختصاصی ریاست‌جمهوری آمریکا «ایر فورس وان» از چین خارج شد و وانگ یی، وزیر امور خارجه چین، به همراه هیاتی دیپلماتیک او را بدرقه کرد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی هاشم خبرنگار الجزیره:
+
+🇮🇷«یک منبع آگاه ایرانی به من گفته است که تهران به‌طور رسمی پاسخ آمریکا به پیشنهاد ایران را دریافت کرده و واشنگتن تمامی شروط ایران را به‌طور کامل رد کرده است.
+
+🔸تیم مذاکره‌کننده ایران پنج شرط را برای ورود به گفت‌وگو درباره پرونده هسته‌ای مطرح کرده بود:
+
+1. پایان دادن به جنگ در همه جبهه‌ها
+
+2. لغو کامل تمامی تحریم‌ها
+
+3. آزادسازی دارایی‌های مسدودشده
+
+4. جبران خسارات و تلفات ناشی از جنگ
+
+5. به‌رسمیت شناختن حق حاکمیت ایران بر تنگه هرمز»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9107
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9107_1778834053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«جزیره خارک به سقف ظرفیت ذخیره‌سازی خود نرسیده است. اگر چنین بود، نزدیک‌ترین نفتکش‌های در دسترس را به‌کار می‌گرفتند و آن‌ها را کاملاً بارگیری می‌کردند. در عوض، تولید نفت کاهش یافته تا با افت بارگیری نفتکش‌ها هم‌خوان شود. همچنان تعداد زیادی نفتکش وجود دارد که می‌توان آن‌ها را بارگیری کرد.» TANKER TRACKER
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 337280
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337280_1778834055.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال که دانش‌آموز پایه دهم انسانی است می‌گوید با وجود نهایی نبودن امتحان‌های امسال، نگران سال آینده است، چون به گفته او کیفیت آموزش و شرایط یادگیری در سال جاری «افتضاح» بوده و دانش‌آموزان عملا چیزی یاد نگرفته‌اند. او می‌گوید در مدرسه غیردولتی تحصیل می‌کند.
+این پیام با هوش مصنوعی خوانده شده است.
+</div>
+
+## ManotoTV — post 105475
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105475_1778834056.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای دولت ابوظبی روز جمعه ۲۵ اردیبهشت اعلام کرد امارات متحده عربی ساخت یک خط لوله نفتی تازه را برای افزایش صادرات از مسیر فجیره تسریع می‌کند.
+
+این پروژه قرار است تا سال ۲۰۲۷ ظرفیت صادرات نفت امارات از فجیره را دو برابر کند و توان این کشور برای دور زدن تنگه هرمز را افزایش دهد.
+
+فجیره در ساحل دریای عمان قرار دارد و نفتکش‌ها از این مسیر می‌توانند بدون عبور از تنگه هرمز بارگیری کنند.
+</div>
+
+## ManotoTV — post 105474
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105474_1778834057.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه ناظر اینترنتی نت‌بلاکس اعلام کرد قطعی اینترنت در ایران امروز وارد هفتادوهفتمین روز خود شده و از مرز ۱۸۲۴ ساعت گذشته است.
+نت‌بلاکس هشدار داده ادامه این محدودیت‌ها می‌تواند به یک خطر فزاینده برای سلامت روان شهروندان تبدیل شود؛ شهروندانی که تا حد زیادی از پلتفرم‌های آنلاین، ارتباطات و تعامل عادی با جهان خارج محروم شده‌اند.
+</div>
+
+## ManotoTV — post 105473
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105473_1778834057.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، پس از پایان سفر دو روزه خود به چین، روز جمعه پکن را ترک کرد.
+ترامپ با هواپیمای اختصاصی ریاست‌جمهوری آمریکا «ایر فورس وان» از چین خارج شد و وانگ یی، وزیر امور خارجه چین، به همراه هیاتی دیپلماتیک او را بدرقه کرد.
+</div>
+
+## manototv — post 105475
+
+<div align="center">
+  <a href="telegram/content/manototv_105475_1778834058.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای دولت ابوظبی روز جمعه ۲۵ اردیبهشت اعلام کرد امارات متحده عربی ساخت یک خط لوله نفتی تازه را برای افزایش صادرات از مسیر فجیره تسریع می‌کند.
+
+این پروژه قرار است تا سال ۲۰۲۷ ظرفیت صادرات نفت امارات از فجیره را دو برابر کند و توان این کشور برای دور زدن تنگه هرمز را افزایش دهد.
+
+فجیره در ساحل دریای عمان قرار دارد و نفتکش‌ها از این مسیر می‌توانند بدون عبور از تنگه هرمز بارگیری کنند.
+</div>
+
+## manototv — post 105474
+
+<div align="center">
+  <a href="telegram/content/manototv_105474_1778834058.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه ناظر اینترنتی نت‌بلاکس اعلام کرد قطعی اینترنت در ایران امروز وارد هفتادوهفتمین روز خود شده و از مرز ۱۸۲۴ ساعت گذشته است.
+نت‌بلاکس هشدار داده ادامه این محدودیت‌ها می‌تواند به یک خطر فزاینده برای سلامت روان شهروندان تبدیل شود؛ شهروندانی که تا حد زیادی از پلتفرم‌های آنلاین، ارتباطات و تعامل عادی با جهان خارج محروم شده‌اند.
+</div>
+
+## manototv — post 105473
+
+<div align="center">
+  <a href="telegram/content/manototv_105473_1778834059.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، پس از پایان سفر دو روزه خود به چین، روز جمعه پکن را ترک کرد.
+ترامپ با هواپیمای اختصاصی ریاست‌جمهوری آمریکا «ایر فورس وان» از چین خارج شد و وانگ یی، وزیر امور خارجه چین، به همراه هیاتی دیپلماتیک او را بدرقه کرد.
+</div>
+
+## alonews — post 120112
+
+<div align="center">
+  <a href="telegram/content/alonews_120112_1778834060.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای چند انفجار در اربیل 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120111
+
+<div align="center">
+  <a href="telegram/content/alonews_120111_1778834060.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت امور خارجه چین: درگیری بین ایران و ایالات متحده از همان ابتدا هرگز نباید رخ می‌داد و نیازی به ادامه آن نیست
+
+
+🔴یافتن راه‌حل در اسرع وقت به نفع ایالات متحده، ایران، کشورهای منطقه و جهان است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120110
+
+<div align="center">
+  <a href="telegram/content/alonews_120110_1778834060.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان پخش اسرائیل: ایال زمیر، رئیس ستاد کل ارتش اسرائیل، در طول جنگ با ایران مخفیانه از امارات متحده عربی بازدید و با محمد بن زاید، دیدار کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 11:55
 ---
 
