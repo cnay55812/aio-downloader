@@ -7,6 +7,21 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 05:53
+---
+
+## FoxNewsTwitter — post 341758
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341758_1778811834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump says he came up with a nickname, "Dumocrats," after talking about top Democratic leader Hakeem Jeffries. || @seanhannity
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 05:44
 ---
 
