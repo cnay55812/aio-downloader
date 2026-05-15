@@ -16,7 +16,7 @@ on:
         description: >
           Upload method:
           - "split_push": split ZIPs into 99MB parts & push to repo (default)
-          - "release": create a GitHub Release & upload ZIPs directly (no splitting).
+          - "release": create a GitHub Release & upload ZIPs. ZIPs larger than 1950 MB are automatically split.
             **Note:** GitHub Release assets are limited to 2 GB per file.
         required: true
         type: choice
@@ -48,7 +48,6 @@ jobs:
         id: parse
         run: |
           URLS_INPUT="${{ github.event.inputs.url }}"
-          # Replace commas and newlines with spaces, then clean up
           URLS=$(echo "$URLS_INPUT" | tr ',' ' ' | tr '\n' ' ' | tr -s ' ' | sed 's/^ *//;s/ *$//')
           if [ -z "$URLS" ]; then
             echo "No URLs provided." >&2
@@ -66,7 +65,6 @@ jobs:
           BUNDLE_ALL="${{ github.event.inputs.bundle_all }}"
           UPLOAD_METHOD="${{ github.event.inputs.upload_method }}"
 
-          # Use a dedicated folder, and ensure it's empty at the start of the run
           OUTPUT_DIR="mega-nz"
           rm -rf "$OUTPUT_DIR"
           mkdir -p "$OUTPUT_DIR"
@@ -88,13 +86,11 @@ jobs:
             DL_DIR="dl_$index"
             mkdir -p "$DL_DIR"
 
-            # Download using megatools (flatten all files into DL_DIR)
             (
               cd "$DL_DIR" || exit 1
               megatools dl "$url" 2>&1 || echo "MEGA_DL_FAILED"
             ) | tee "dl_${index}.log"
 
-            # If megatools failed (detected from log or no files), record failure
             if grep -q "MEGA_DL_FAILED" "dl_${index}.log" || [ -z "$(ls -A "$DL_DIR" 2>/dev/null)" ]; then
               echo "Download failed for $url"
               echo "$url" >> "$FAILED_FILE"
@@ -102,18 +98,14 @@ jobs:
               continue
             fi
 
-            # Flatten: bring all files (ignore sub‑directories) to the root of DL_DIR
             find "$DL_DIR" -mindepth 2 -type f -exec mv {} "$DL_DIR/" \; 2>/dev/null || true
-            # Remove empty sub‑directories
             find "$DL_DIR" -mindepth 1 -type d -empty -delete 2>/dev/null || true
 
-            # Process each file found
             for DL_FILE in "$DL_DIR"/*; do
               [ -f "$DL_FILE" ] || continue
               fname=$(basename "$DL_FILE")
 
               if [ "$BUNDLE_ALL" = "true" ]; then
-                # Bundle mode: copy to shared folder, rename on collision
                 TARGET="$BUNDLE_DIR/$fname"
                 if [ -e "$TARGET" ]; then
                   base="${fname%.*}"
@@ -133,7 +125,6 @@ jobs:
                 cp "$DL_FILE" "$TARGET"
                 echo "Added to bundle: $TARGET"
               else
-                # Individual ZIP per file
                 RAND5=$(tr -dc 'a-z' </dev/urandom | head -c5)
                 ZIP_BASE="${fname}_${RAND5}"
                 ZIP_NAME="${ZIP_BASE}.zip"
@@ -144,10 +135,16 @@ jobs:
                 cp "$DL_FILE" "$TMPZIP/"
 
                 if [ "$UPLOAD_METHOD" = "release" ]; then
-                  # No splitting, just a regular zip
+                  # Create unsplit ZIP first
                   (cd "$TMPZIP" && zip "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
+                  FULLZIP="${OUTPUT_DIR}/${ZIP_NAME}"
+                  SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
+                  if [ "$SIZE" -gt 2044723200 ]; then
+                    echo "ZIP larger than 1950 MiB, splitting"
+                    rm "$FULLZIP"
+                    (cd "$TMPZIP" && zip -s 1950m "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
+                  fi
                 else
-                  # Split into 99 MB chunks
                   (cd "$TMPZIP" && zip -s 99m "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
                 fi
                 rm -rf "$TMPZIP"
@@ -157,7 +154,6 @@ jobs:
             rm -rf "$DL_DIR" "dl_${index}.log"
           done < urls.txt
 
-          # Handle failed URLs
           if [ -s "$FAILED_FILE" ]; then
             RAND_FAIL=$(tr -dc 'a-z' </dev/urandom | head -c5)
             FAIL_NAME="links-failed-${RAND_FAIL}.txt"
@@ -167,13 +163,19 @@ jobs:
             rm -f "$FAILED_FILE"
           fi
 
-          # If bundling, create the master ZIP (split or unsplit depending on method)
           if [ "$BUNDLE_ALL" = "true" ] && [ -n "$(ls -A "$BUNDLE_DIR" 2>/dev/null)" ]; then
             RAND_BUNDLE=$(tr -dc 'a-z' </dev/urandom | head -c5)
             BUNDLE_ZIP="bundle_${RAND_BUNDLE}.zip"
             echo "Creating bundle: $BUNDLE_ZIP"
             if [ "$UPLOAD_METHOD" = "release" ]; then
               (cd "$BUNDLE_DIR" && zip "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
+              FULLBUNDLE="${OUTPUT_DIR}/${BUNDLE_ZIP}"
+              SIZE=$(stat -c%s "$FULLBUNDLE" 2>/dev/null || echo 0)
+              if [ "$SIZE" -gt 2044723200 ]; then
+                echo "Bundle ZIP larger than 1950 MiB, splitting"
+                rm "$FULLBUNDLE"
+                (cd "$BUNDLE_DIR" && zip -s 1950m "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
+              fi
             else
               (cd "$BUNDLE_DIR" && zip -s 99m "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
             fi
@@ -182,7 +184,6 @@ jobs:
             rm -rf "$BUNDLE_DIR"
           fi
 
-          # Write list of generated assets for the release step
           ls -1 "$OUTPUT_DIR" > "${OUTPUT_DIR}_assets.txt"
           echo "Assets to upload:"
           cat "${OUTPUT_DIR}_assets.txt"
@@ -229,7 +230,6 @@ jobs:
             exit 0
           fi
 
-          # Generate a random 5‑letter string
           RAND5=$(tr -dc 'a-z' </dev/urandom | head -c5)
           TAG="mega-nz-downloader-${RAND5}"
           echo "Creating release tag: $TAG"
@@ -237,20 +237,16 @@ jobs:
           git config user.name "GitHub Actions"
           git config user.email "actions@github.com"
 
-          # Tag the current commit (no extra commits, just a lightweight tag)
           git tag "$TAG" -m "MEGA-NZ download release"
-
-          # Push the tag
           git push origin "$TAG"
 
-          # Build list of asset paths
           ASSET_ARGS=""
           while IFS= read -r file; do
             ASSET_ARGS="$ASSET_ARGS ${OUTPUT_DIR}/$file"
           done < "${OUTPUT_DIR}_assets.txt"
 
           gh release create "$TAG" $ASSET_ARGS \
-            --title "mega-downloader-${RAND5}" \
+            --title "mega-nz-downloader-${RAND5}" \
             --notes "Automated release from MEGA.nz download workflow." \
             --target "${{ github.ref_name }}"
 
