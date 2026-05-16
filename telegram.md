@@ -7,6 +7,87 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 17:24
+---
+
+## VahidOOnLine — post 240478
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240478_1778939665.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان آلمان روز شنبه همزمان با سایر کشورها در حمایت از انقلاب ملی علیه جمهوری اسلامی در شهر کاسل تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لازم به ذکر است شخص اینجانب ، یاشار در اتاق جنگ هیچ رابطه و تیمکشی با هیچ گروه جناه و سمتی ندارم مسیر من مسیر مانوک خدابخشیان و فریدون فرخزاد است و هم پیمانان من فقط مردم واقعی و وطن پرست ایران هستند و برگ برنده ما همه با هم اینجا برای عبور از مسیر فقط فقط فقط خود شخص شاهزاده رضا پهلوی است ، یک بار دیگه خواستم اهداف و مسیر خودم را مشخص و کلیر کنم
+@withyashar
+</div>
+
+## IranIntlTV — post 337477
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337477_1778939667.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان آلمان روز شنبه همزمان با سایر کشورها در حمایت از انقلاب ملی علیه جمهوری اسلامی در شهر کاسل تجمع کردند.
+</div>
+
+## Shin_Persian — post 6030
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6030_1778939668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+U.S. Central Command ✓ @CENTCOM Sat, 16 May 2026 13:24:31 UTC A U.S. Army helicopter observes commercial ships while flying over regional waters near the Strait of Hormuz during U.S. enforcement of the maritime blockade against Iran. As of May 16, 78…
+</div>
+
+## Shin_Persian — post 6029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+U.S. Central Command ✓ @CENTCOM
+Sat, 16 May 2026 13:24:31 UTC
+
+A U.S. Army helicopter observes commercial ships while flying over regional waters near the Strait of Hormuz during U.S. enforcement of the maritime blockade against Iran.
+
+As of May 16, 78 commercial ships have been redirected, and 4 have been disabled to ensure compliance.
+
+فارسی
+
+یک هلیکوپتر ارتش ایالات متحده در حالی که در جریان اجرای محاصره دریایی علیه ایران توسط ایالات متحده بر فراز آب‌های منطقه در نزدیکی تنگه هرمز پرواز می‌کند، کشتی‌های تجاری را زیر نظر دارد.
+
+تا تاریخ ۱۶ می، ۷۸ کشتی تجاری تغییر مسیر داده شده‌اند و ۴ کشتی برای اطمینان از انطباق، از کار افتاده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 20243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل اعلام کرد نیروی هوایی این کشور با هدایت لشکر ۹۱، دو عضو حزب‌الله رو در ساختمانی در جنوب لبنان هدف قرار دادن. بعد از حمله انفجارهای ثانویه دیده شد که نشون‌دهنده وجود سلاح داخل سازه بود. علاوه بر این، سربازان اسرائیلی یک انبار تسلیحات حزب‌الله…
+</div>
+
+## alonews — post 120393
+
+<div align="center">
+  <a href="telegram/content/alonews_120393_1778939669.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله‌ی‌ نیروی هوایی اسرائیل به المنصوری، جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 17:14
 ---
 
