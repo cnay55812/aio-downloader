@@ -7,6 +7,256 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 23:54
+---
+
+## pm_afshaa — post 90870
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90870_1778963086.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید پیامی تهدیدآمیز از ترامپ با عنوان «شوخی نداریم» همراه با تصویری از حضور او در اتاق جنگ منتشر کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87437
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87437_1778963087.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار فاکس نیوز: ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایران است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337528
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337528_1778963088.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست «آینده تکنولوژی در ایران» با رد مشروعیت ساختار سیاسی جمهوری اسلامی و چهره‌هایی چون محمدباقر قالیباف گفت مردم ایران این همه کشته و هزینه نداده‌اند که بار دیگر تن به «ماموریت‌های مهره‌های این حکومت» بدهند.
+
+او تاکید کرد: «ما باید به دنیا ثابت کنیم که ملت ایران، شریک بهتری برای جامعه جهانی است تا بقایای این حکومت.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6040
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6040_1778963089.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 16 May 2026 20:23:35 UTC
+
+POTUS on his Truth:
+
+فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS) در حساب تروث سوشال خود:
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6039
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6039_1778963090.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Sat, 16 May 2026 20:14:02 UTC Along with the 2x RAF P-8A "Poseidon" maritime patrol aircraft noted by @ArmchairAdml, the US Navy has had 3x P-8A operating in the North Atlantic today I first noted 2…
+</div>
+
+## Shin_Persian — post 6038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Sat, 16 May 2026 20:14:02 UTC
+
+Along with the 2x RAF P-8A "Poseidon" maritime patrol aircraft noted by @ArmchairAdml, the US Navy has had 3x P-8A operating in the North Atlantic today
+
+I first noted 2 depart Lajes earlier, then with a friend departed Iceland in the last 2hrs!
+
+They've found a submarine...
+
+فارسی
+
+در کنار ۲ فروند هواپیمای گشت دریایی P-8A "Poseidon" متعلق به نیروی هوایی سلطنتی بریتانیا (RAF) که توسط @ArmchairAdml به آن‌ها اشاره شد، نیروی دریایی ایالات متحده نیز امروز ۳ فروند P-8A در شمال اقیانوس اطلس در حال عملیات داشته است.
+
+من ابتدا خروج ۲ فروند را پیش‌تر از «لاژس» ثبت کردم و پس از آن، یک فروند دیگر در ۲ ساعت گذشته از ایسلند خارج شد!
+
+آن‌ها یک زیردریایی پیدا کرده‌اند...
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6036
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6036_1778963091.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Armchair Admiral 🇬🇧 ✓ @ArmchairAdml Sat, 16 May 2026 19:59:34 UTC #RAF Royal Air Force Boeing Poseidon MRA.1 2x #43C91E ZP807 - RAFAIR 7046 #43C91A ZP803 - RAFAIR 7042 RAFAIR 7046 departed RAF Lossiemouth this evening for a North Atlantic…
+</div>
+
+## Shin_Persian — post 6035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Armchair Admiral 🇬🇧 ✓ @ArmchairAdml
+Sat, 16 May 2026 19:59:34 UTC
+
+#RAF Royal Air Force
+
+Boeing Poseidon MRA.1 2x
+#43C91E ZP807 - RAFAIR 7046
+#43C91A ZP803 - RAFAIR 7042
+
+RAFAIR 7046 departed RAF Lossiemouth this evening for a North Atlantic patrol. RAFAIR 7042 is already on station and operating over the Atlantic.
+
+@MATA_osint @flightradar24
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+#RAF نیروی هوایی سلطنتی بریتانیا
+
+بوئینگ پوزایدون MRA.1 ۲ فروند
+#43C91E ZP807 - RAFAIR 7046
+#43C91A ZP803 - RAFAIR 7042
+
+پرواز RAFAIR 7046 عصر امروز پایگاه هوایی لوسی‌موث (RAF Lossiemouth) را برای گشت‌زنی در شمال اقیانوس اطلس ترک کرد. پرواز RAFAIR 7042 از قبل در منطقه مستقر شده و بر فراز اقیانوس اطلس در حال عملیات است.
+
+@MATA_osint @flightradar24_
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بزرگترین ناو هواپیمابر جهان پس از مشارکت در عملیات نظامی علیه جمهوری اسلامی و دستگیری مادورو به ویرجینیا بازگشت
+
+▪️ناو هواپیمابر یو‌اس‌اس جرالد آر. فورد، بزرگترین ناو هواپیمابر جهان، روز شنبه پس از ۱۱ ماه استقرار، طولانی‌ترین مدت از زمان جنگ ویتنام، به خانه خود در ایالت ویرجینیا بازگشت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150723.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/Lj3xWW7IbLA?feature=share
+</div>
+
+## Persian_Trend_Official — post 14273
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14273_1778963093.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار فاکس نیوز
+
+💢ترامپ درحال آماده‌شدن برای دور جدیدی از حملات نظامی به ایران است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14272
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14272_1778963093.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢پست ترامپ
+
+این آرامش قبل از طوفانه
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظام
+</div>
+
+## IranianMinds — post 20259
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20259_1778963094.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست ترامپ در تروث‌سوشال:
+
+این آرامش قبل از طوفان بود.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281241
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281241_1778963095.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻مردی در شهر مودنا در شمال ایتالیا با خودرو خود با چندین عابر پیاده برخورد و هشت نفر را زخمی کرد. حال چهار نفر از آنها وخیم گزارش شده است.
+
+یکی از مجروحان زنی است که گفته می‌شود هر دو پایش خرد شده است.
+
+عابران پس از تعقیب راننده خودرو، یک «مرد سی و چند ساله» را دستگیر و به پلیس تحویل دادند.
+
+جورجیا ملونی، نخست‌وزیر ایتالیا، این واقعه را «بسیار جدی» توصیف کرد. همچنین ماسیمو مزتی، شهردار مودنا، در ادامه واکنش خانم ملونی گفت اگر مشخص شود که این یک حمله از پیش برنامه‌ریزی شده بوده، «حتی جدی‌تر» خواهد بود.
+
+این حادثه بعد از ظهر شنبه ۱۶ مه اتفاق افتاد. یک شاهد عینی گفت: «ما دیدیم که خودرو نزدیک می‌شود، به سمت جدول می‌رفت اما ناگهان سرعت گرفت و هنگام برخورد با عابران حداقل ۱۰۰ کیلومتر در ساعت سرعت داشت و ما دیدیم که مردم در حال پرواز هستند.»
+
+شهردار مودنا گفت به نظر می‌رسد که راننده «عمدا به پیاده‌رو رفته، به چند نفر زده و به ویترین یک مغازه کوبیده است».
+به گفته شهردار مودنا، فرد بازداشت‌شده یک تبعه ایتالیایی متولد برگامو، اما «اصالتا مغربی» است.
+
+ادامه از:
+https://bbc.in/4nxF8zv
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 120483
+
+<div align="center">
+  <a href="telegram/content/alonews_120483_1778963095.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش‌ها از انفجار و نور بسیار شدید در بیت شِمِش در اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120482
+
+<div align="center">
+  <a href="telegram/content/alonews_120482_1778963096.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: این آرامش قبل طوفان بود!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 23:45
 ---
 
