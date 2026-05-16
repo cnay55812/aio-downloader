@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 16:55
+---
+
+## pm_afshaa — post 90849
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90849_1778937906.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث به نقل از منابع پاکستانی:
+اسلام آباد به دنبال ادامه روند میانجیگری با جدییت است. اسلام آباد به دنبال متقاعد کردن تهران و واشنگتن به انعطاف پذیری در مذاکراته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337475
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337475_1778937907.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در تجمعی که به فراخوان تامی رابینسون، فعال راست‌گرای بریتانیا، در لندن برگزار شد، شماری از ایرانیان با پرچم شیر و خورشید حضور پیدا کردند. رابینسون این تجمع را «بزرگ‌ترین گردهمایی ملی‌گرایانه» توصیف کرده است.
+گفت‌وگو با تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 217895
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217895_1778937909.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه تنش‌ها میان امارات متحده عربی و جمهوری اسلامی، آموزش استفاده از اسلحه برای حامیان حکومت در برنامه‌های زنده صداوسیما و تیراندازی به پرچم امارات، واکنش کاربران را در شبکه‌های اجتماعی برانگیخته است.
+
+روز جمعه، ۲۵ اردیبهشت، چگونگی استفاده از کلاشنیکف، حداقل در سه شبکه جمهوری اسلامی، با حضور مجریان مسلح آموزش داده شد.
+
+در یکی از این برنامه‌ها مجری صداوسیما به تصویر پرچم امارات متحده عربی شلیک می‌کند.
+</div>
+
+## alonews — post 120390
+
+<div align="center">
+  <a href="telegram/content/alonews_120390_1778937912.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دفتر ریاست جمهوری تایوان:
+
+جمهوری چین یک کشور دموکراتیک مستقل و دارای حاکمیت است.
+
+پکن هیچ حقی برای ادعا نسبت به تایوان ندارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120389
+
+<div align="center">
+  <a href="telegram/content/alonews_120389_1778937914.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه‌های رسمی ایران: کشورهای اروپایی در حال گفتگو با تهران درباره تنگه هرمز هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 16:45
 ---
 
