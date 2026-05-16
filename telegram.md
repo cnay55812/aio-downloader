@@ -7,6 +7,75 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 16:12
+---
+
+## WithYashar — post 11392
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11392_1778935339.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز جهانی پسر بچه … به یاد جاوید نام های کوچکمون مبارزه میکنیم تا نسل جدید این درد ها رو نکشه !
+@withyashar
+</div>
+
+## mwarmonitor — post 9155
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9155_1778935340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️🇺🇸نیروی هوایی آمریکا (USAF) – جنگ ایران ۲۰۲۶ | ۱۶ مه
+
+✈️تعداد پروازهای ورودی هواپیماهای ترابری C-17 به منطقه فرماندهی مرکزی آمریکا (CENTCOM) و پایگاه‌های مرتبط به دست‌کم 1,320 پرواز رسیده و 10 پرواز دیگر نیز در حال انجام است.
+
+✈️8 مورد از این پروازهای جدید از پایگاه هوایی Pope Army Airfield آمریکا انجام شده‌اند و مقصد مشخصی برای آن‌ها قابل شناسایی نیست.
+
+✈️حداقل 6 پرواز جدید نیز به‌نظر می‌رسد حرکت‌های خروجی از CENTCOM به سمت پایگاه‌هایی در خاک آمریکا (CONUS) باشند؛ همان پایگاه‌هایی که بیشتر پروازها از آن‌ها آغاز شده‌اند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341811
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341811_1778935340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A retired Navy admiral warns UFOs may be controlled by a “higher-order non-human intelligence.”
+
+Tim Gallaudet, considered to be one of America’s leading voices on the UAP phenomenon, says he’s seen “data videos” showing craft moving seamlessly between the ocean and atmosphere at speeds beyond known technology.
+
+“I know we are aware of higher order non-human intelligence that direct the movement of these phenomena,” he said.
+</div>
+
+## pm_afshaa — post 90848
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90848_1778935341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری‌های صداوسیما در چند برنامه زنده، با اسلحه کلاشینکف حضور پیدا کردن : 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## alonews — post 120382
+
+<div align="center">
+  <a href="telegram/content/alonews_120382_1778935341.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیو منتشرشده توسط ارتش آمریکا از عملیات کشتن ابوبلال المینوکی، نفر دوم داعش در نیجریه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 16:05
 ---
 
