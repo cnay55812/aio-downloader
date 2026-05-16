@@ -7,6 +7,94 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 18:25
+---
+
+## pm_afshaa — post 90853
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جهت تبلیغات با بازدهی بالا میتونین دایرکت کانال پیام بدین
+</div>
+
+## FarsiVOA — post 217902
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217902_1778943302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناسا می‌گوید در این ماموریت تدارکاتی، یک موشک اسپیس‌ایکس فالکون ۹ به سوی ایستگاه فضایی بین‌المللی پرتاب شد.
+ 
+در این ماموریت، اقلام ‌ویژه‌ای برای یادبود دویست‌وپنجاهمین سالگرد استقلال آمریکا، فرستاده شده است.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217901
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217901_1778943303.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی ویدیویی از مهدی خانعلی‌زاده، کارشناس صداوسیما، منتشر کرده‌اند که تصویری جعلی و ساخته هوش مصنوعی را تحلیل می‌کند. این تصویر دونالد ترامپ، رئیس‌جمهور آمریکا، ایلان ماسک، مدیرعامل تسلا و جنسن هوانگ، مدیرعامل انویدیا را با مشت گره کرده جلوی پرچم حزب کمونیست نشان می‌دهد که به ادعای خانعلی‌زاده نشانه «نیاز آمریکا به چین» است.
+</div>
+
+## DW_Farsi — post 124767
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_124767_1778943305.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 آموزش کار با اسلحه در صداوسیمای جمهوری اسلامی
+
+در میانه بحران سیاسی، جنگ و آتش‌بسی شکننده، چند شبکه تلویزیونی جمهوری اسلامی صحنه‌هایی از آموزش کار با اسلحه پخش کرده‌اند؛ از مجری زنی که می‌گوید "زنان این سرزمین، دختران این سرزمین، اسلحه به دست، آماده هستیم مقابل دشمن بایستیم" تا برنامه‌ای که در آن نشانه‌گیری به سمت پرچم امارات متحده عربی دیده می‌شود.
+@dw_farsi
+</div>
+
+## IranianMinds — post 20250
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20250_1778943307.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست ترامپ در تروث‌سوشال:
+
+بازی نداریم! تماشا کن قراره بعدش تو موضع مورد علاقت چه اتفاقی رخ میده!
+
+@IranianMinds
+</div>
+
+## alonews — post 120413
+
+<div align="center">
+  <a href="telegram/content/alonews_120413_1778943308.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حماس تأیید کرد که عزالدین الحداد، فرماندهی از تیپ‌های عزالدین القسام، در حمله هوایی هدفمند اسرائیل شب گذشته در شهر غزه کشته شد.
+
+
+🔴گروه ادعا می‌کند علاوه بر همسر و دختر الحداد، چندین غیرنظامی دیگر نیز در این حمله کشته شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120411
+
+<div align="center">
+  <a href="telegram/content/alonews_120411_1778943308.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ، پیت هگستث، دریانوردان گروه ضربت ناو هواپیمابر USS Gerald R. Ford را پس از بازگشت به پایگاه نیروی دریایی نورفولک از یک ماموریت تاریخی ۱۱ ماهه، خوش‌آمد گفت.
+
+
+🔴ویدیوی اول از USS Gerald R. Ford (CVN-78) است و ویدیوی دوم هگستث را در حال خطاب قرار دادن نیروها در USS Bainbridge (DDG-96) نشان می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 18:14
 ---
 
