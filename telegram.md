@@ -7,6 +7,90 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 15:54
+---
+
+## pm_afshaa — post 90847
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: اسرائیل در حال آماده شدن برای یک جنگ چند روزه یا چند هفته‌ای با ایران است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 217889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر پرواز جنگنده اف-۳۵بی از ناو «یو‌اس‌اس تریپولی»
+
+فرماندهی مرکزی ایالات متحده، سنتکام، تصاویری از پرواز جنگنده اف-۳۵بی تفنگداران دریایی آمریکا از ناو آبی‌خاکی «یو‌اس‌اس تریپولی» در دریای عرب منتشر کرد.
+
+جنگنده اف-۳۵بی به دلیل قابلیت برخاستن کوتاه و فرود عمودی می‌تواند از بزرگ‌ترین ناوهای آبی‌خاکی نیروی دریایی آمریکا عملیات انجام دهد.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آسوشیتدپرس: بازگشت ناو هواپیمابر جرالد فورد به پایگاه پس از ۱۱ ماه مأموریت.
+
+وزارت‌جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
+
+این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است.
+
+پ.ن: آخرین باری که این ناو هواپیمابر در پایگاه خشکی مستقر بود، هنوز جنگ ۱۲ روزه نیز آغاز نشده بود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20236
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20236_1778934264.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخرین قیمت نفت:
+۱۰۹.۲۶ دلار
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389554
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389554_1778934265.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی @Dirty_Kids 👻
+</div>
+
+## alonews — post 120379
+
+<div align="center">
+  <a href="telegram/content/alonews_120379_1778934265.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اردوغان:
+مطالبات ما روشن است. ما اف-۳۵ ها را می‌خواهیم
+
+
+🔴همکاران ما به تماس‌های خود با همتایان آمریکایی‌شان ادامه می‌دهند و امیدواریم نتیجه مثبتی به دست آوریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 15:44
 ---
 
