@@ -7,6 +7,23 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 07:53
+---
+
+## FoxNewsTwitter — post 341806
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341806_1778905439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Countless bees swarmed outside the White House, near the press corps' media area, on Friday.
+
+About 20 minutes later, the bees swarmed a hive on a tree on the North Lawn.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 07:44
 ---
 
