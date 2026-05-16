@@ -7,6 +7,22 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 01:32
+---
+
+## alonews — post 120499
+
+<div align="center">
+  <a href="telegram/content/alonews_120499_1778968973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یادی کنیم از حضور غرور انگیز بیرانوند در دایرکت یک مدل معروف
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 01:27
 ---
 
