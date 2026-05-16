@@ -7,6 +7,250 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 15:35
+---
+
+## VahidOOnLine — post 240470
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240470_1778933108.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«تجمع ایرانیان در سیدنی استرالیا»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240469
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240469_1778933111.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال درباره بحران سوخت می‌گوید که در مشهد بعد از مراجعه به چند جایگاه نهایتا بعد از یک ساعت انتظار توانست با کارت سه‌هزار تومانی ۱۵ لیتر بزنین بزند. پیام مخاطب با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240468
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240468_1778933113.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یحیی دهقان‌پور، عکاس برجسته، مدرس باسابقه عکاسی و یکی از چهره‌های تاثیرگذار عکاسی معاصر ایران، روز جمعه ۲۵ اردیبهشت‌ماه در سن ۸۶ سالگی درگذشت.
+دهقان‌پور متولد سال ۱۳۱۹ در تهران بود و فعالیت حرفه‌ای و آموزشی او، نقش مهمی در تربیت نسل‌های مختلف عکاسان ایرانی داشت. او تدریس عکاسی را از سال ۱۳۵۷ و همزمان با فعالیت در مدرسه عالی تلویزیون آغاز کرد و طی بیش از سه دهه، در دانشگاه‌ها و مراکز آموزشی مختلف به تدریس این رشته پرداخت.
+این عکاس پیشکسوت علاوه بر فعالیت آموزشی، نمایشگاه‌های انفرادی متعددی برگزار کرد و آثارش در نمایشگاه‌های گروهی بسیاری به نمایش درآمد. از ماندگارترین تصاویر او، مجموعه عکس‌های مراسم تشییع پیکر فروغ فرخزاد در گورستان ظهیرالدوله تهران است؛ تصاویری تاریخی که در ۲۵ بهمن ۱۳۴۵ و زمانی که دهقان‌پور تنها ۲۶ سال داشت، با دوربین مدیوم‌فرمت ثبت شدند.
+او سال‌ها بعد این مجموعه را در نمایشگاهی با عنوان «آن روز فروغ را در باغچه کاشتند» ارائه کرد؛ مجموعه‌ای که به یکی از روایت‌های تصویری مهم از بدرقه فروغ فرخزاد تبدیل شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240467
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240467_1778933114.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«تجمع ایرانیان در بریزبن استرالیا»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341809
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341809_1778933116.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Empty Waymo cars swarm an Atlanta neighborhood, repeatedly circling cul-de-sacs and leaving residents frustrated and confused.
+
+One local estimated nearly 50 self-driving cars rolled through the area in a single morning, with several clogging the road as they struggled to maneuver around one another.
+
+Waymo said it had “already addressed this routing behavior.”
+</div>
+
+## iaghapour — post 2615
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2615_1778933118.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آموزش نصب ساده و آفلاین 3X-UI روی سرور ایران + SSL (+ معرفی قابلیت های جدید)
+
+🔹در این ویدیو به سراغ یکی از بزرگترین چالش‌های این روزها رفتیم: نصب پنل 3X-UI روی سرورهای ایران همراه با سرتیفیکیت به صورت کاملاً آفلاین و بدون نیاز به اینترنت آزاد! همینطور سعی کردیم یک معرفی ساده از قابلیت های جدید این پنل داشته باشیم.
+
+🔗 لینک ویدیو در یوتیوب
+
+🔗 دانلود ویدیو با لینک مستقیم (بزودی)
+
+
+#آموزش #فیلترشکن #پنل #xui #3xui
+برای دور زدن فیلترینگ و آموزش تکنولوژی و هوش مصنوعی ما رو دنبال کنید 💚
+🆔@iaghapour
+</div>
+
+## IranIntlTV — post 337467
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337467_1778933119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فدراسیون جهانی فوتبال، فیفا، نام راب دیپرینک، داور هلندی حاضر در فهرست داوران جام جهانی ۲۰۲۶، را پس از بازداشت او توسط پلیس متروپولیتن بریتانیا در ماه گذشته میلادی، از فهرست رسمی داوران این رقابت‌ها حذف کرد.
+
+🔹به نوشته سایت اتلتیک، دیپرینک که به‌عنوان داور VAR برای جام جهانی آمریکا، کانادا و مکزیک امسال انتخاب شده بود، پس از مطرح شدن اتهام تعرض جنسی به یک پسر نوجوان در لندن بازداشت شده بود.
+
+🔹با این حال، دیپرینک اعلام کرده که پلیس متروپولیتن پرونده را مختومه کرده و هیچ اتهامی علیه او مطرح نخواهد شد. سخنگوی پلیس متروپولیتن نیز به اتلتیک گفته که شواهد و مدارک به اندازه کافی علیه او وجود نداشته است و در نتیجه «اقدام بیشتری انجام نخواهد شد».
+
+🔹فیفا در بیانیه‌ای به اتلتیک اعلام کرد: «فیفا تأیید می‌کند که راب دیپرینک از فهرست داوران جام جهانی حذف شده است.»
+
+🔹در بیانیه‌ای از سوی فدراسیون فوتبال هلند (KNVB)، از این داور حمایت شده است.
+
+🔹با وجود مختومه شدن پرونده، منابع آگاه به اتلتیک گفته‌اند انتظار می‌رود فیفا ویلی دلاژو، داور فرانسوی، را جایگزین دیپرینک کند.
+
+🔹گزارش کامل را در سایت بخوانید
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337466
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337466_1778933120.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال درباره بحران سوخت می‌گوید که در مشهد بعد از مراجعه به چند جایگاه نهایتا بعد از یک ساعت انتظار توانست با کارت سه‌هزار تومانی ۱۵ لیتر بزنین بزند. پیام مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337465
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337465_1778933122.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهتاب قلی‌زاده، روزنامه‌نگار اقتصادی، درباره تورم بهای خوراکی‌ها در ایران گفت نرخ ارز تاثیر شدیدی بر قیمت مواد غذایی دارد. او افزود: «برخلاف تصویری از خودکفایی که سال‌ها برای آن تبلیغ شده، ساختار تولید مواد غذایی در ایران به‌طور کامل داخلی نیست.»
+@iranintltv
+</div>
+
+## ManotoTV — post 105513
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105513_1778933124.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«تجمع ایرانیان در سیدنی استرالیا»
+</div>
+
+## ManotoTV — post 105512
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105512_1778933127.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«تجمع ایرانیان در بریزبن استرالیا»
+</div>
+
+## DW_Farsi — post 124761
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124761_1778933129.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 موج جدید حملات هوایی اسرائیل به مواضع حزب‌الله در جنوب لبنان
+
+ارتش اسرائیل روز شنبه ۲۶ اردیبهشت (۱۶ مه) اعلام کرد موجی از حملات هوایی را علیه زیرساخت‌های حزب‌الله در جنوب لبنان آغاز کرده است.
+
+پیش از این، ارتش به ساکنان ۹ روستا در جنوب لبنان هشدار تخلیه داده بود.
+
+این حملات نخستین عملیات پس از تمدید ۴۵ روزه آتش‌بس در لبنان در شب گذشته محسوب می‌شود.
+
+وزارت خارجه آمریکا روز جمعه ۲۵ اردیبهشت (۱۵ مه) اعلام کرد که اسرائیل و لبنان با میانجی‌گری آمریکا درباره تمدید ۴۵ روزه آتش‌بس به توافق رسیدند.
+
+در مذاکرات آتش‌بس میان دو کشور همسایه، حزب‌الله لبنان حضور ندارد.
+
+لبنان در اوایل ماه مارس به جنگ ایران کشیده شد. در آن زمان، حزب‌الله لبنان در واکنش به کشته‌شدن علی خامنه‌ای، رهبر جمهوری اسلامی موشک‌هایی به سمت اسرائیل شلیک کرد. در پی آن، اسرائیل زیرساخت‌های حزب‌الله را هدف قرار داد.
+
+@dw_farsi
+</div>
+
+## Hranews — post 112969
+
+<div align="center">
+  <img src="telegram/content/Hranews_112969_1778933129.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم بازداشت؛ گزارشی از آخرین وضعیت محمد زنگنه
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– محمد زنگنه، شهروند ساکن مشهد، بیش از ۴۰ روز است که توسط نیروهای امنیتی بازداشت شده است. چندی پیش جلسه دادگاه رسیدگی به اتهامات وی در دادگاه انقلاب مشهد برگزار شده بود.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، محمد زنگنه کماکان در بازداشت به‌سر می‌برد.
+
+بر اساس اطلاعات دریافتی هرانا، جلسه دادگاه رسیدگی به اتهامات آقای زنگنه در تاریخ ۱۹ اردیبهشت ماه، در شعبه اول دادگاه انقلاب شهرستان مشهد برگزار شده است. در این جلسه، وی از بابت اتهامات اجتماع و تبانی برای ارتکاب جرم بر ضد امنیت داخلی/خارجی و تبلیغ علیه نظام به دفاع از خود پرداخته بود.
+
+#محمد_زنگنه
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 105513
+
+<div align="center">
+  <a href="telegram/content/manototv_105513_1778933130.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«تجمع ایرانیان در سیدنی استرالیا»
+</div>
+
+## manototv — post 105512
+
+<div align="center">
+  <a href="telegram/content/manototv_105512_1778933132.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«تجمع ایرانیان در بریزبن استرالیا»
+</div>
+
+## alonews — post 120376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ توجه 
+⚠️
+
+بچه ها فیلترینگ خیلیی شدید شده همین الان که اینترنت دارین حتما جوین بشید و از کانفینگاش استفاده کنید که موقع قطعی خیلی به کارتون میاد
+⏬
+
+https://t.me/+WgqzouUHJ1U3OTY0
+https://t.me/+WgqzouUHJ1U3OTY0
+https://t.me/+WgqzouUHJ1U3OTY0
+</div>
+
+## alonews — post 120375
+
+<div align="center">
+  <a href="telegram/content/alonews_120375_1778933134.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جاده چالوس از فردا به مدت ۴روز مسدود می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 15:24
 ---
 
