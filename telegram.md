@@ -7,6 +7,54 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 02:53
+---
+
+## VahidOOnLine — post 240545
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240545_1778973785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلغارستان روز شنبه برای نخستین بار برنده مسابقه آواز یوروویژن شد. ترانه «بانگارنگا» با اجرای دارا، پس از شمارش امتیازهای رای مردمی و هیات‌های داوری ملی در رتبه اول قرار گرفت و اسرائیل نیز دوم شد.
+پنج کشور فینال یوروویژن را در اعتراض به جنگ غزه تحریم کرده بودند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11433
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11433_1778973786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چنته هرکسی که توخالی باشد بالاخره معلوم میشود
+@withyashar
+</div>
+
+## IranIntlTV — post 337545
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337545_1778973789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلغارستان روز شنبه برای نخستین بار برنده مسابقه آواز یوروویژن شد. ترانه «بانگارنگا» با اجرای دارا، پس از شمارش امتیازهای رای مردمی و هیات‌های داوری ملی در رتبه اول قرار گرفت و اسرائیل نیز دوم شد.
+پنج کشور فینال یوروویژن را در اعتراض به جنگ غزه تحریم کرده بودند.
+
+https://iranintl.com/202605163001
+</div>
+
+## FarsiVOA — post 217935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از «به جان اموال مردم افتادن» تا حکومتِ سرکوب در نقش مربی اسلحه در صداوسیما
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 02:43
 ---
 
