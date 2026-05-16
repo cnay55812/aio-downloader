@@ -7,6 +7,115 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 18:35
+---
+
+## VahidOOnLine — post 240493
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240493_1778943907.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دانش‌آموز در پیام به ایران اینترنشنال با اشاره به مجازی شدن آموزش می‌گوید باید برای مدرسه‌ای که نرفتیم ۱۵۰ میلیون تومان شهریه بدهیم. پیام این دانش‌آموز با هوش مصنوعی بازخوانی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341816
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341816_1778943910.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SatAmericaFNC: 🚨EXCLUSIVE: @KayleighMcEnany asks Vice President JD Vance if Newsom has contacted the administration to help investigate fraud in his state.
+
+@VP @Vance says, "I would love it if Gavin Newsom had a come-to-Jesus moment and said, 'You know what, I’m going to take this fraud issue seriously.'”
+</div>
+
+## IranIntlTV — post 337492
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337492_1778943911.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر کشور پاکستان برای دیدار با مقام‌‌های جمهوری اسلامی وارد تهران شد. همزمان رسانه‌های ایران گزارش دادند محسن نقوی در دیدار با وزیر کشور جمهوری اسلامی، درباره‌ی ازسرگیری مذاکرات صلح، گفت‌وگوهای مفصلی انجام داده‌اند.
+
+گفت‌وگو با جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337491
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337491_1778943913.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دانش‌آموز در پیام به ایران اینترنشنال با اشاره به مجازی شدن آموزش می‌گوید باید برای مدرسه‌ای که نرفتیم ۱۵۰ میلیون تومان شهریه بدهیم. پیام این دانش‌آموز با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## FarsiVOA — post 217903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هگست: نفر دوم داعش، در راستای دستور پرزیدنت ترامپ برای محافظت از مسیحیان، در نیجریه کشته شد
+
+▪️پیت هگست، وزیر جنگ ایالات متحده روز شنبه ۲۶ اردیبهشت اعلام کرد نیروهای آمریکایی، شامگاه جمعه با همکاری نیروهای مسلح نیجریه، ابوبلال المینوکی و دیگر رهبران داعش در این کشور را از میان برداشتند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8150687.html/?nocach=1
+</div>
+
+## BBCPersian — post 281224
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تلویزیون ایران: اروپایی‌ها برای عبور کشتی‌ها از تنگه هرمز در حال مذاکره با تهران هستند
+
+تلویزیون دولتی ایران گزارش کرده است کشورهای اروپایی درباره عبور کشتی‌ها از تنگه هرمز با تهران در حال مذاکره هستند.
+
+شبکه خبر تلویزیون ایران و خبرگزاری صداوسیما بدون اشاره به نام این کشورها گزارش دادند «پس از عبور کشتی‌های کشورهای شرق آسیا، به‌ویژه چین، ژاپن و پاکستان، امروز اطلاعاتی دریافت کردیم که نشان می‌دهد کشورهای اروپایی هم مذاکراتی را با نیروی دریایی سپاه پاسداران برای دریافت مجوز عبور آغاز کرده‌اند.»
+
+ایران از زمان آغاز جنگ با آمریکا و اسرائیل در نهم اسفند (۲۸ فوریه) عبور و مرور دریایی از این تنگه حیاتی را را مسدود کرده است.
+
+کنترل ایران بر این آبراه، بازارهای جهانی را متزلزل کرده و به تهران در برابر آمریکا اهرم فشار داده است.
+
+همزمان آمریکا هم محاصره دریایی خود علیه بنادر ایران را تداوم داده است.
+
+در شرایط عادی، حدود یک‌پنجم صادرات جهانی نفت و گاز طبیعی مایع، به‌همراه دیگر کالاهای اساسی، از تنگه هرمز عبور می‌کند.
+
+https://bbc.in/4tJv7AT
+@BBCPersian
+</div>
+
+## alonews — post 120416
+
+<div align="center">
+  <a href="telegram/content/alonews_120416_1778943914.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: به گفته دو منبع آگاه، در داخل کاخ سفید هیچ تلاشی برای متقاعد کردن ترامپ به خویشتنداری بیشتر در پیام‌هایش درباره ایران صورت نگرفته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120414
+
+<div align="center">
+  <a href="telegram/content/alonews_120414_1778943914.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله‌ی‌ نیروی هوایی اسرائیل به المنصوری، جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 18:25
 ---
 
