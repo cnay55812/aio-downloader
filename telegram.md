@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 20:24
+---
+
+## mwarmonitor — post 9162
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9162_1778950497.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روز هشتم است که ایران هیچ نفت خامی در جزیره خارگ بارگیری نکرده است. ذخایر نفت در خشکی اکنون تقریباً به ظرفیت کامل رسیده‌اند. به‌احتمال زیاد یکی از خطوط لوله آسیب دیده است. ایران در حال تلاش برای یافتن نوعی راه‌حل جایگزین است. هیچ نفتکش VLCC اجازه ورود پیدا…
+</div>
+
+## FarsiVOA — post 217914
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگو با معین خزائلی تشدید موج توقیف اموال مخالفان جمهوری اسلامی؛ حقوقدانان: غیر قانونی است
+</div>
+
+## BBCPersian — post 281229
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایرنا: وزیر کشور پاکستان در یک سفر از پیش اعلام نشده در تهران است خبرگزاری رسمی ایرنا گزارش داده است که وزیر کشور پاکستان «در یک سفر از پیش اعلام نشده» در تهران است. ایرنا از قول منابع خود خبر داده است که محسن نقوی ساعاتی پیش وارد تهران شده و قرار است با…
+</div>
+
+## alonews — post 120440
+
+<div align="center">
+  <a href="telegram/content/alonews_120440_1778950498.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امروز بمب افکن B-52 تو پایگاه هوایی فِرفورد تمرین‌‌های خودشو انجام داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120439
+
+<div align="center">
+  <a href="telegram/content/alonews_120439_1778950499.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاریو: ترامپ در آستانه چراغ سبز به اسرائیل برای ازسرگیری حملات است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 20:15
 ---
 
