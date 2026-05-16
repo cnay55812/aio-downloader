@@ -7,6 +7,291 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 18:14
+---
+
+## VahidOOnLine — post 240492
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240492_1778942678.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری آناتولی ترکیه گزارش داد که هاکان فیدان، وزیر خارجه ترکیه، با علی باقری‌کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی، روز شنبه در استانبول دیدار کرد. این خبرگزاری اعلام کرد جزئیات بیشتری از این دیدار منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240491
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240491_1778942678.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوسلدورف | آلمان؛ گردهمایی ایرانیان - گزارشگر شنبه ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240490
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240490_1778942680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرث استرالیا، تجمع ایرانیان، شنبه ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11402
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11402_1778942681.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوئل نهایی ، وضعیت الان!
+@withyashar
+</div>
+
+## WithYashar — post 11401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی ها اومدن که خبر مرگ بابای سپاهیشون رو زودتر تو چنلت ببینن
+اخه از رسانه های دیگه ۱ ساعت حداقل جلوتری ستون😂🔥
+</div>
+
+## pm_afshaa — post 90852
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90852_1778942683.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ در تروث سوشال:
+شوخی نداریم!!! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4667
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4667_1778942683.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 امیررضا نصرآزادانی، فوتبالیست زندانی حامی معترضان و آزادی‌خواهان، در پیامی از درون زندان، از ایرانیان خواسته او را فراموش نکنند.
+
+#امیررضا_نصرآزادانی #فوتبالیست_مردمی
+@DEJradio
+</div>
+
+## IranIntlTV — post 337490
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337490_1778942685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری آناتولی ترکیه گزارش داد که هاکان فیدان، وزیر خارجه ترکیه، با علی باقری‌کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی، روز شنبه در استانبول دیدار کرد. این خبرگزاری اعلام کرد جزئیات بیشتری از این دیدار منتشر نشده است.
+https://iranintl.com/202605168367
+</div>
+
+## IranIntlTV — post 337489
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337489_1778942685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم استکهلم، شنبه ۲۶ اردیبهشت در حمایت از انقلاب ملی تجمع کردند. تجمع‌کنندگان ضمن حمایت از شاهزاده رضا پهلوی، می‌گویند هدف از برگزاری این تجمعات، رساندن صدای مردم ایران به جهان است.
+
+مهران عباسیان، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337488
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337488_1778942687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای شنبه ۲۶ اردیبهشت
+@iranintltv
+</div>
+
+## ManotoTV — post 105521
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105521_1778942688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوسلدورف | آلمان؛ گردهمایی ایرانیان - گزارشگر شنبه ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105520
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105520_1778942690.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرث استرالیا، تجمع ایرانیان، شنبه ۲۶ اردیبهشت
+</div>
+
+## FarsiVOA — post 217900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اختلال «بله» و «روبیکا»؛ پیام‌رسان‌های داخلی هم از دسترس خارج شدند
+
+▪️همزمان با آغاز دوازدهمین هفته قطع کامل اینترنت بر روی مردم توسط جمهوری اسلامی، رسانه‌های داخلی گزارش دادند پیام‌رسان‌های بومی اینترنت روز شنبه ۲۶ اردیبهشت ۱۴۰۵ با اختلال گسترده روبرو و شماری از آنها از دسترس خارج شدند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-internet-application-blocked-security/8150680.html/?nocach=1
+</div>
+
+## DW_Farsi — post 124766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 جنگ ایران و زیر سؤال رفتن تلاش‌های میانجی‌گرانه پاکستان
+
+پاکستان نقش مهمی در تلاش‌های صلح میان آمریکا و ایران بر عهده گرفته و میزبان گفت‌وگوها و میانجی دیپلماسی پشت‌پرده میان طرف‌های درگیر شده است.
+
+این موضوع برای اسلام‌آباد از اهمیت زیادی برخوردار است. مقام‌های پاکستان ثبات در خلیج فارس را مستقیماً با منافع اقتصادی و امنیتی خود مرتبط می‌دانند. رویارویی گسترده‌تر میان آمریکا و ایران می‌تواند مسیرهای تجاری را مختل کند، فشارهای انرژی را افزایش دهد، تنش‌های فرقه‌ای را شعله‌ور سازد و بی‌ثباتی بیشتری در مناطق مرزی حساس پاکستان با ایران ایجاد کند.
+
+پای اعتبار بین‌المللی نیز برای دولت پاکستان و تلاشش برای پایان دادن به مناقشه‌ای که کل جهان را تحت تأثیر قرار داده در میان است؛ اعتباری که می‌تواند حتی در این بین آسیب هم ببیند.
+
+مایکل کوگلمن، پژوهشگر ارشد بخش جنوب آسیا در اندیشکده "شورای آتلانتیک" در واشنگتن، به دویچه وله گفت: «اگر تلاش‌های پاکستان برای احیای گفت‌وگوهای آمریکا و ایران شکست بخورد، به‌ویژه پس از آنکه علناً نقش میانجی‌گری را برعهده گرفته، ممکن است با انتقادهای فزاینده‌ای روبه‌رو شود.»
+
+او افزود: «با متوقف شدن گفت‌وگوها، گزینه‌های پاکستان محدود شده‌اند، زیرا یک میانجی نمی‌تواند دو طرف عمیقاً بی‌اعتماد به یکدیگر را به مذاکره وادار کند.»
+
+یکی از مقام‌های بلندپایه دخیل در مذاکرات در دولت پاکستان، به دویچه وله گفت: «پاکستان تمام تلاش خود را برای تعامل هر دو طرف انجام می‌دهد و تنش‌های فزاینده میان واشنگتن و تهران را با نگرانی جدی دنبال می‌کند.»
+
+او افزود: «ما متعهد به ایفای نقشی سازنده در عرصه دیپلماتیک برای حمایت از کاهش فوری تنش‌ها و دستیابی به راه حلی مسالمت‌آمیز در راستای امنیت منطقه‌ای و جهانی هستیم.»
+
+اوایل این هفته، گزارشی در رسانه‌های آمریکایی، بی‌طرفی پاکستان در مناقشه ایران را زیر سؤال برد. شبکه "سی‌بی‌اس نیوز" به نقل از مقام‌هایی آمریکایی که نامشان فاش نشد، گزارش داد که اسلام‌آباد به ایران اجازه داده هواپیماهای خود را در پایگاه‌های هوایی پاکستان مستقر کند و به این ترتیب عملاً آنها را از حملات آمریکا در امان نگه دارد.
+
+وزارت خارجه پاکستان بلافاصله واکنش نشان داد و این گزارش را "گمراه‌کننده" و "گمانه‌زنی" خواند. اسلام‌آباد در بیانیه‌ای رسمی اعلام کرد فعالیت این هواپیماها به تمهیدات دیپلماتیک و لجستیکی مرتبط با تلاش‌های جاری صلح مربوط بوده و نیروهایی از چندین طرف در آن حضور داشته‌اند.
+
+وزارت خارجه پاکستان همچنین هشدار داد که "گزارش‌های تأییدنشده و جنجالی" خطر تضعیف ابتکارهای حساس دیپلماتیک را به همراه دارند.
+
+سناتور لیندسی گراهام، از حامیان سرسخت جنگ آمریکا علیه ایران، پس از انتشار گزارش "سی‌بی‌اس" علناً از پاکستان انتقاد کرد. سخنان او بازتاب‌دهنده نگرانی‌های گسترده‌تری در میان برخی سیاست‌گذاران آمریکایی است که بیم آن دارند پاکستان در حالی که همچنان در پی حفظ روابط راهبردی با واشنگتن است، بیش از حد با تهران مدارا کند.
+
+در همین حال، رقیب آمریکا یعنی چین آشکارا پاکستان را به گسترش نقش دیپلماتیک‌اش ترغیب کرده است. به گزارش خبرگزاری فرانسه، وانگ یی، وزیر خارجه چین، از اسلام‌آباد خواسته است تلاش‌های میانجی‌گرانه میان ایران و آمریکا را "افزایش" دهد و به ثبات منطقه، به‌ویژه در اطراف تنگه هرمز، کمک کند.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124765
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_124765_1778942691.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 آتش‌سوزی در کارخانه تولید روغن موتور در مراغه
+
+رسانه‌های ایران روز شنبه ۲۶ اردیبهشت از آتش‌سوزی در کارخانه تولید روغن موتور در مراغه خبر دادند.
+تا زمان تهیه این خبر، گزارشی از مصدومین احتمالی منتشر نشده است.
+@dw_farsi
+</div>
+
+## IranianMinds — post 20249
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20249_1778942692.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دفتر ریاست جمهوری تایوان: در مورد موضوع فروش تسلیحات که توجه خارجی را به خود جلب کرده است، کاملاً مشخص است که چین همچنان به تشدید تهدیدات نظامی ادامه می‌دهد. این تنها منبع ناامنی در تنگه تایوان و منطقه هند و اقیانوس آرام است و همچنین به همین دلیل است که کشورهای اطراف زنجیره جزایر اول به طور فعال با ایالات متحده برای تقویت دفاع همکاری می‌کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20248
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20248_1778942693.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دفتر ریاست جمهوری تایوان: از رئیس جمهور ترامپ به خاطر حمایت مستمرش از امنیت تنگه تایوان از زمان اولین دوره ریاست جمهوری‌اش تشکر می‌کنیم. ما همکاری تایوان و ایالات متحده را بیشتر تعمیق خواهیم کرد و از طریق قدرت، صلح را برقرار خواهیم کرد و اطمینان حاصل خواهیم کرد که امنیت و ثبات تنگه تایوان تهدید یا تضعیف نشود.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻معاون استاندار تهران: ۷۰ درصد مردم در تهران در زمان جنگ از شهر خارج نشدند
+
+معاون استاندار تهران گفته است که در جریان جنگ اخیر که با حملات آمریکا و اسرائیل در نهم اسفند (بیست و هشتم فوریه) شروع شد، «۷۰ درصد از مردم تهران در محل زندگی خود ماندند» و از شهرها خارج نشدند.
+
+حسین کاغذلو گفت حضور مردم در شهرها با وجود این که بخشی از جنگ در تعطیلات نوروز بود، اتفاق افتاد.
+
+او گفته است که در جریان جنگ ۱۲ روزه «تعداد قابل توجهی از مردم، به دلیل حملات دشمنان از شهر خارج شدند.»
+
+https://bbc.in/4wuyApz
+@BBCPersian
+</div>
+
+## manototv — post 105521
+
+<div align="center">
+  <a href="telegram/content/manototv_105521_1778942694.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوسلدورف | آلمان؛ گردهمایی ایرانیان - گزارشگر شنبه ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105520
+
+<div align="center">
+  <a href="telegram/content/manototv_105520_1778942696.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرث استرالیا، تجمع ایرانیان، شنبه ۲۶ اردیبهشت
+</div>
+
+## alonews — post 120408
+
+<div align="center">
+  <a href="telegram/content/alonews_120408_1778942697.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرملین : پوتین با رئیس امارات متحده عربی درباره ایران گفتگو کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120407
+
+<div align="center">
+  <a href="telegram/content/alonews_120407_1778942697.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید ترامپ در تروث سوشال:
+بازی نداریم! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120406
+
+<div align="center">
+  <a href="telegram/content/alonews_120406_1778942698.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیویی از ورود وزیر کشور پاکستان به ایران 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 18:04
 ---
 
