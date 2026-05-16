@@ -7,6 +7,279 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 21:25
+---
+
+## WithYashar — post 11409
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ناو گروه در حال فرار هستن یا چی ؟
+</div>
+
+## WithYashar — post 11408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ناو گروه در حال فرار هستن یا چی ؟
+</div>
+
+## WithYashar — post 11407
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11407_1778954117.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناوگروه آبراهام لینکلن با سه اسکورت با سرعت به سمت دریای عمان می‌ روند ، ۲۶ اردیبهشت. (مکان 260 کیلومتری چابهار)
+@withyashar
+</div>
+
+## mwarmonitor — post 9167
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9167_1778954118.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در سوشال تروث
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9166
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9166_1778954119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨✈️ به نظر می‌رسد آسمان‌ها در حال حاضر به‌طور نگران‌کننده‌ای آرام هستند. حتی هیچ پرواز باری ورودی قابل مشاهده‌ای وجود ندارد، به‌جز یک فروند C-17 که همین حالا در اردن فرود آمده است.
+
+✈️آخرین پروازهای باری نظامی در حال خارج شدن از خاورمیانه هستند.
+
+@mwarmonitor
+</div>
+
+## VahidOnline — post 75506
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75506_1778954119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ساخته شده با هوش مصنوعی از شلیک به پهپاد جمهوری اسلامی که ترامپ بدون هیچ توضیحی پست کرده: realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 337510
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337510_1778954120.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امیر قلعه‌نویی، سرمربی تیم ملی لیست ۳۰ نفره خود برای جام جهانی ۲۰۲۶ را اعلام کرد. در این لیست، نام سردار آزمون دیده نمی‌شود. سردار پس از موضع‌گیری‌هایی در مخالفت با جمهوری اسلامی، ‌از تیم ملی خط خورد.
+
+🔹این اسامی درحالی اعلام شده است که هنوز تکلیف ویزای تیم ملی مشخص نیست.
+
+🔹اسامی بازیکنان دعوت شده به اردوی تیم ملی در ترکیه به شرح زیر است؛
+
+دروازه‌بان‌ها
+🔹علیرضا بیرانوند، حسین حسینی، پیام، نیازمند، محمد خلیفه
+
+مدافعان
+🔹احسان حاج صفی، میلاد محمدی، امید نورافکن، شجاع خلیل زاده، علی نعمتی، حسین کنعانی، دانیال ایری، رامین رضاییان، صالح حردانی
+
+هافبک‌ها
+🔹سامان قدوس، روزبه چشمی، امیرمحمد رزاق نیا، سعید عزت‌اللهی، محمد قربانی،علیرضا جهانبخش، آریا یوسفی، محمد محبی، مهدی قائدی، مهدی ترابی
+
+مهاجمان
+🔹مهدی طارمی، هادی حبیبی‌نژاد، امیرحسین حسین‌زاده، امیرحسین محمودی، دنیس درگاهی، کسری طاهری و علی علیپور
+
+🔹مسعود محبی، دانیال اسماعیلی‌فر، حسین ابرقویی‌نژاد، عارف آقاسی، مهدی هاشم‌نژاد، محمد مهدی محبی، عارف حاجی عیدی و احسان محروقی ۸ بازیکنی هستند که در اردوهای پیشین حضور داشتند، اما خط خوردند.
+
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 14251
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14251_1778954120.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢تمسخر دوباره جو بایدن توسط دونالد ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزیر کشور پاکستان امروز به تهران سفر کرده است
+
+🔹 سفر وزیر کشور پاکستان به تهران در چارچوب تلاش‌های میانجیگری میان امریکا و جمهوری اسلامی است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157270
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157270" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزین ندیمی: برای آمریکا گزینهٔ نظامی دست‌یافتنی‌تر از دیپلماسی است
+
+🔸در حالی که مذاکرات آمریکا و جمهوری اسلامی بر سر برنامه هسته‌ای، آینده غنی‌سازی اورانیوم و تنگه هرمز به بن‌بست رسیده، نیویورک‌تایمز به نقل از دو مقام خاورمیانه‌ای گزارش داده که آمریکا و اسرائیل در حال انجام فشرده‌ترین آماده‌سازی‌ها از زمان آتش‌بس ماه گذشته برای احتمال ازسرگیری حملات علیه جمهوری اسلامی هستند. این گزارش در شرایطی منتشر می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، گفته صبر او در برابر جمهوری اسلامی رو به پایان است و تهران باید با واشینگتن به توافق برسد. فرزین ندیمی، کارشناس نظامی در مؤسسه واشینگتن، در مورد آنچه در آمریکا در مورد آینده بحران در خلیج‌فارس مطرح است، توضیح داده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زمین‌لرزه‌ای به قدرت ۴.۵ ریشتر، دقایقی پیش، گلوگاه در استان مازندران را لرراند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281233
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281233_1778954121.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیش از پنجاه کودک در شمال‌شرق نیجریه، در پی حمله به سه مدرسه در روز جمعه ۲۵ اردیبهشت، ربوده شده‌اند. گفته می‌شود بیشتر این کودکان بین دو تا پنج سال سن دارند و از مهدکودک‌ها به زور برده شده‌اند.
+
+والدین این کودکان در روستای «موسا» در ایالت بورنو با نگرانی و اضطراب فراوان در انتظار دریافت خبری از فرزندان خود هستند، در حالی که هیچ گروهی تاکنون مسئولیت این حملات را بر عهده نگرفته است. هم‌زمان گزارش‌هایی نیز از فرار برخی ساکنان منطقه منتشر شده است.
+
+به گفته شاهدان عینی، مهاجمان هنگام فرار با موتورهای خود، از کودکان به‌عنوان سپر انسانی استفاده کردند؛ اقدامی که باعث شد نیروهای امنیتی نتوانند به سوی آن‌ها تیراندازی کنند.
+📷Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ظهر رفتم دوش بگیرم، نگو کانفیگم روشن مونده و حجمش تموم شده.
+فکر میکنم از بعد از امیرکبیر، تا الان کسی اینجوری از حموم رفتن ضرر نکرده بوده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389571
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389571_1778954122.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چی شد؟ مگه ۳۰ میلیون جانفدا نداشتید؟ افتادید دنبال ۵۰ ساله برای خدمت
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️  
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍       
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 
+💳تسویه حساب دلاری سریع 💊بیمه شرط میکس 
+⚠️فروش شرط 
+🔔ویرایش شرط                    
+3️⃣
+2️⃣ 
+🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389569
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389569_1778954123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇
+
+✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
+
+## Dirty_Kids — post 389568
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389568_1778954123.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رونمایی از BMW Alpina,
+دیدنش هم لذت بخشه, روندنش که جای خود دارد:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120453
+
+<div align="center">
+  <img src="telegram/content/alonews_120453_1778954125.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابک جهانبخش، خواننده: به تازگی از همسرم جدا شدم، من اونو از ۰ به ۱۰۰ رسوندم اما اون با ۲ تا بچه ولم کرد رفت. زنم فقط به چشم عابر بانک بهم نگاه میکرد و از من به عنوان پله موفقیت خودش استفاده کرد.
+
+نظرتون؟
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 21:15
 ---
 
