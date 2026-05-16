@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 23:14
+---
+
+## VahidOOnLine — post 240531
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240531_1778960668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست آینده تکنولوژی در ایران، خطاب به کشورهای جهان گفت: «جمهوری اسلامی ثابت کرده غیرقابل اعتماد است و افزود اگر به دنبال یک شریک واقعی هستید به مردم ایران نگاه کنید.»
+
+شاهزاده رضا پهلوی افزود: «باید این درک مشترک در سطح جهانی شکل بگیرد که با وجود جمهوری اسلامی هیچ کشوری نمی‌تواند احساس امنیت و آرامش پایدار داشته باشد.»
+
+او گفت: «جامعه جهانی باید از مردم ایران برای تغییر حکومت حمایت کند. این اقدام نه‌تنها به سود مردم ایران بلکه به نفع خود کشورهای حامی نیز خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 90863
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90863_1778960669.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: جهان در آستانهٔ نظمی نوین قرار دارد. چنان‌که رئیس‌جمهور شی گفت: «تحولی که در یک قرن دیده نشده، در سراسر جهان با شتاب در حال پیشروی است»، و من تأکید می‌کنم که مقاومت ۷۰ روزهٔ ملت ایران این تحول را شتاب بخشیده است. آینده از آنِ جنوب جهانی است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337523
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337523_1778960669.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست آینده تکنولوژی در ایران، خطاب به کشورهای جهان گفت: «جمهوری اسلامی ثابت کرده غیرقابل اعتماد است و افزود اگر به دنبال یک شریک واقعی هستید به مردم ایران نگاه کنید.»
+
+شاهزاده رضا پهلوی افزود: «باید این درک مشترک در سطح جهانی شکل بگیرد که با وجود جمهوری اسلامی هیچ کشوری نمی‌تواند احساس امنیت و آرامش پایدار داشته باشد.»
+
+او گفت: «جامعه جهانی باید از مردم ایران برای تغییر حکومت حمایت کند. این اقدام نه‌تنها به سود مردم ایران بلکه به نفع خود کشورهای حامی نیز خواهد بود.»
+https://iranintl.com/202605162411
+</div>
+
+## IranIntlTV — post 337522
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337522_1778960670.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست «آینده تکنولوژی در ایران» گفت دعوت او از همه جریان‌های سیاسی و فکری، توافق بر سر چهار اصل برای پایان دادن به جمهوری اسلامی و ساختن آینده ایران است.
+
+او این اصول را حفظ تمامیت ارضی ایران، جدایی دین از حکومت، برابری شهروندان در برابر قانون و تعیین شکل نظام آینده از طریق انتخابات آزاد عنوان کرد.
+
+شاهزاده رضا پهلوی همچنین گفت هدف، تدوین نقشه راهی برای بازسازی و شکوفایی ایران پس از جمهوری اسلامی است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337521
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337521_1778960671.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست «آینده تکنولوژی در ایران» با تاکید بر ظرفیت‌های گسترده ایران گفت جمهوری اسلامی مانع اصلی شکوفایی کشور است و با تغییر وضع سیاسی، ایران می‌تواند به جای کره شمالی، کره جنوبی باشد و سیستان‌وبلوچستان، سیلیکون‌ولی ایران بشود.
+@iranintltv
+</div>
+
+## FarsiVOA — post 217929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مستند بلند «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی در هفتاد‌ونهمین دوره فیلم کن به نمایش درآمد و با تشویق ممتد تماشاگران روبه‌رو شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217928
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217928_1778960673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نمایش فیلم «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی در جشنواره کن
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 389578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+اگه توافق نشود ایران روز های خیلی سختی در پیش دارد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389577
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389577_1778960674.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابای گلشیفته هستن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389576
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389576_1778960674.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تامی رابینسون (فعال ملی‌گرای بریتانیایی) در تطاهرات لندن عکس شاهزاده رضا پهلوی بالا برد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389575
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389575_1778960676.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سال 1374، کل پاساژ علاءالدین: 500 میلیون
+
+سال 1405، آیفون 17 پرومکس: 500 میلیون
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120472
+
+<div align="center">
+  <a href="telegram/content/alonews_120472_1778960676.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه پهپاد حزب‌الله مستقیم به خودروی ارتش اسرائیل خورد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 FLASH NET VPN 
+🔥 
+⚠️ شرایط جنگی؟ نت ملی؟ فیلترینگ سنگین؟ 
+💪 ما هنوز پایدار و بدون قطعی کنار شماییم! 
+🚀 پینگ خفن 
+🌐 سرعت فوق‌العاده پایدار 
+😍 رضایت فراوان کاربران 
+🤖 ربات کاملاً خودکار 
+💸 نرخ‌ها پایین‌تر از همه جا 🇧🇬 تک لوکیشن بلغارستان ♾ بدون ضریب 
+🔗 دارای لینک…
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 23:04
 ---
 
