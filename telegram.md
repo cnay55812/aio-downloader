@@ -7,6 +7,152 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 16:45
+---
+
+## mwarmonitor — post 9158
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9158_1778937349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝تحلیل اختصاصی کانال
+
+🇵🇰🇮🇷سفر از پیش‌اعلام‌نشده وزیر کشور پاکستان به تهران، بیش از آنکه یک رایزنی سنتی باشد، یک آفند دیپلماتیک پیشگیرانه است. در عرف بین‌الملل، حضور فیزیکی یک مقام ارشد از کشوری غیردرگیر در پایتختِ هدف، به عنوان یک ضربه‌گیر امنیتی عمل می‌کند؛ چرا که واشنگتن برای اجتناب از تصاعد بحران و درگیر کردن پای اسلام‌آباد، دست به اقدام نظامی ناگهانی نخواهد زد.
+
+🔸این تحرک در کوتاه‌مدت به شدت تأثیرگذار است و عملاً زمان حیاتی برای تنش‌زدایی یا بازدارندگی موقت ایجاد می‌کند. با این حال، کارآمدی بلندمدت آن بستگی به این دارد که تهران و اسلام‌آباد از این فرصتِ تنفس و «سپر دیپلماتیک» برای تغییر محاسبات واشنگتن بهره ببرند، یا اینکه این سفر تنها یک مسکن موقت برای به تعویق انداختن بحران باشد.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 337474
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337474_1778937352.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از وقوع آتش‌سوزی در «کارخانه روغن موتور» در مراغه خبر داد. رییس آتش‌نشانی شهرستان مراغه بعد از ظهر شنبه اعلام کرد این کارخانه از ساعاتی پیش دچار آتش‌سوزی شده است و نیروهای امدادی و آتش‌نشانی در حال اطفای حریق هستند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337473
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337473_1778937354.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از وقوع آتش‌سوزی در «کارخانه روغن موتور» در مراغه خبر داد. رییس آتش‌نشانی شهرستان مراغه بعد از ظهر شنبه اعلام کرد این کارخانه از ساعاتی پیش دچار آتش‌سوزی شده است و نیروهای امدادی و آتش‌نشانی در حال اطفای حریق هستند.
+@iranintltv
+</div>
+
+## FarsiVOA — post 217894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی آفریقای ایالات متحده، آفریکام، اعلام کرد در عملیاتی در شمال‌شرق نیجریه چند عضو ارشد گروه داعش کشته شدند.
+
+به گفته آفریکام، ابو بلال المنوکی، از چهره‌های کلیدی داعش در منطقه، در این عملیات کشته شده است.
+
+ارتش آمریکا می‌گوید این حمله با هدف تضعیف توان عملیاتی داعش در غرب آفریقا انجام شده است.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14239
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14239_1778937355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ دوستان توجه داشته باشید که تیم «پرشین ترند» در هیچ‌یک از پلتفرم‌های داخلی، کانال یا گروه رسمی ندارد و هیچ‌گونه فعالیتی در این بسترها انجام نمی‌دهد. ⚠️ لطفاً نسبت به سوءاستفاده افراد سودجو و صفحات جعلی هوشیار باشید. 📝 Nick 📌 @persian_trend_official پرشین…
+</div>
+
+## IranianMinds — post 20238
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20238_1778937356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدئویی که ارتش آمریکا از عملیات ترور ابوبلال المینوکی نفر دوم داعش در نیجریه، منتشر کرد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389557
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389557_1778937359.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اطلاعات داره کم‌کم رو می‌شه. به خامنه‌ای گفته بودند جنگ نمی‌شه از لونه بیا بیرون که یک دفعه با یه تق... به هلاکت می‌رسه
+گوش کنید حتما
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389556
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389556_1778937361.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استوری جدید مشاور قالیباف :
+
+ای لشکر صاحب زمان آماده باش...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 112970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازداشت یک شهروند در تهران به دلیل انتشار مطالبی در فضای مجازی
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– پلیس فتا تهران بزرگ از بازداشت یک شهروند به دلیل آنچه «انتشار اخبار نادرست در فضای مجازی» عنوان شده، خبر داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 120388
+
+<div align="center">
+  <a href="telegram/content/alonews_120388_1778937362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم تهران کنارت، جدیدترین فیلمیه که بعد از جنگ توی سینماها اکران شده
+
+حجاب به طرز قابل توجهی کنار رفته و در تیزر رسمی فیلم، خواننده زن یعنی سوگند داره میخونه!
+
+[@AloTweet]
+</div>
+
+## alonews — post 120385
+
+<div align="center">
+  <a href="telegram/content/alonews_120385_1778937364.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️شب گذشته در بسیاری از برنامه های صداوسیما، مجریان با تفنگ حاضر شدند.
+
+
+🔴نظرتون رو کامنت حتما بگید
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 16:35
 ---
 
