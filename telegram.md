@@ -7,6 +7,312 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 17:34
+---
+
+## VahidOOnLine — post 240483
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240483_1778940267.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، مرکز فرماندهی ایالات متحده، اعلام کرد که از آغاز محاصره سواحل جنوب ایران تا کنون، ۷۸ کشتی تجاری وادار به تغییر مسیر شده‌اند و ۴ کشتی برای تضمین اجرای محاصره از کار افتاده‌اند.
+
+سنتکام با انتشار نمایی از داخل یک بالگرد بر فراز آب‌های منطقه‌ای نزدیک تنگه هرمز، نوشت که این بالگرد ارتش آمریکا کشتی‌های تجاری را در جریان اجرای محاصره دریایی ایران زیر نظر دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240482
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240482_1778940268.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلا واویه، سخنگوی ارتش اسرائیل برای رسانه‌های عربی، در پیامی نوشت لبنان «میان چنگ ملایان و رشته‌های وابستگی» از یک کشور به گروگان تبدیل شده است.
+
+او نوشت زمانی که جنگ‌ها «با انگشتان ایرانی اداره می‌شود»، مردم لبنان بهای آن را با «ویرانی و خاکستر» می‌پردازند.
+
+واویه همچنین اعلام کرد لبنان به سکویی تبدیل شده و حزب‌الله «رشته‌هایی است که از سوی تهران حرکت داده می‌شود» و نتیجه این وضعیت، به گفته او، «کشوری که سیاه‌پوش می‌شود و بی‌گناهانی که جز آینده‌ای نامعلوم سهمی ندارند» است.
+
+سخنگوی ارتش اسرائیل در پایان پرسید: «لبنان به کجا می‌رود؟ و تا کی؟»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240481
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240481_1778940269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان سوئیس روز شنبه با تجمع در شهر برن به حمایت از انقلاب ملی و شاهزاده رضا پهلوی پرداختند و شعار «جاوید شاه» سر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240480
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240480_1778940270.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در واکنش به نمایش و آموزش کار با سلاح در صداوسیما یک شهروند در پیامی به ایران اینترنشنال این اقدام را نشانه سقوط حکومت خواند و مخاطبی دیگر به حرکت مشابه در لیبی قبل از سقوط حکومت معمر قذافی اشاره کرد.
+
+پیام این مخاطبان با هوش مصنوعی بازخوانی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240479
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240479_1778940272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ ستاد فرماندهی مرکزی ارتش آمریکا، سنتکام، روز شنبه ۲۶ اردیبهشت، گزارشی از آخرین فعالیت‌های این نیروها در تنگه هرمز و محاصره دریایی بنادر ایران ارائه کرد.
+
+بر اساس این گزارش تا تاریخ ۲۶ اردیبهشت، نیروهای آمریکایی در راستای تضمین پایبندی به این محاصره نظامی، مسیر ۷۸ کشتی تجاری را که به سمت بنادر ایران در حرکت بودند تغییر داده و ۴ کشتی دیگر را نیز به دلیل تلاش برای نقض این خطوط ممنوعه، متوقف و زمین‌گیر کرده‌اند. سنتکام تاکید کرده است که این تدابیر سخت‌گیرانه تنها علیه شناورهای ورودی و خروجی به بنادر ایران اعمال می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این پست اوناییکه استیکر خنده گذاشتن رو از کانال مسدودشون کن
+</div>
+
+## WithYashar — post 11395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این پست اوناییکه استیکر خنده گذاشتن رو از کانال مسدودشون کن
+</div>
+
+## mwarmonitor — post 9160
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9160_1778940273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️من همین حالا یک ناو هواپیمابر کلاس نیمیتز (احتمالاً USS George H. W. Bush یا USS Abraham Lincoln) را در تصاویر ماهواره‌ای Sentinel-2 مربوط به 16/05/2026 پیدا کردم. 🔸این ناو با سرعت به سمت شمال دریای عمان در حال حرکت است. @mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341813
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341813_1778940273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Today, the nation honors the brave men and women of the United States Armed Forces, recognizing their courage, sacrifice, and unwavering commitment to defending America.
+
+"As we celebrate 250 glorious years of American independence this year, we acknowledge that our precious freedom, enjoyed and embraced by generation after generation, has been secured for all citizens by the providence and grace of Almighty God and the service and sacrifice of every member of our military," a White House statement reads.
+</div>
+
+## VahidOnline — post 75501
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75501_1778940274.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دختر جمیله شفیعی: JamilehShafiei
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 337481
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337481_1778940274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، مرکز فرماندهی ایالات متحده، اعلام کرد که از آغاز محاصره سواحل جنوب ایران تا کنون، ۷۸ کشتی تجاری وادار به تغییر مسیر شده‌اند و ۴ کشتی برای تضمین اجرای محاصره از کار افتاده‌اند.
+
+سنتکام با انتشار نمایی از داخل یک بالگرد بر فراز آب‌های منطقه‌ای نزدیک تنگه هرمز، نوشت که این بالگرد ارتش آمریکا کشتی‌های تجاری را در جریان اجرای محاصره دریایی ایران زیر نظر دارد.
+https://iranintl.com/202605164791
+</div>
+
+## IranIntlTV — post 337480
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337480_1778940275.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلا واویه، سخنگوی ارتش اسرائیل برای رسانه‌های عربی، در پیامی نوشت لبنان «میان چنگ ملایان و رشته‌های وابستگی» از یک کشور به گروگان تبدیل شده است.
+
+او نوشت زمانی که جنگ‌ها «با انگشتان ایرانی اداره می‌شود»، مردم لبنان بهای آن را با «ویرانی و خاکستر» می‌پردازند.
+
+واویه همچنین اعلام کرد لبنان به سکویی تبدیل شده و حزب‌الله «رشته‌هایی است که از سوی تهران حرکت داده می‌شود» و نتیجه این وضعیت، به گفته او، «کشوری که سیاه‌پوش می‌شود و بی‌گناهانی که جز آینده‌ای نامعلوم سهمی ندارند» است.
+
+سخنگوی ارتش اسرائیل در پایان پرسید: «لبنان به کجا می‌رود؟ و تا کی؟»
+https://iranintl.com/202605163963
+</div>
+
+## IranIntlTV — post 337479
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337479_1778940276.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان سوئیس روز شنبه با تجمع در شهر برن به حمایت از انقلاب ملی و شاهزاده رضا پهلوی پرداختند و شعار «جاوید شاه» سر دادند.
+</div>
+
+## IranIntlTV — post 337478
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337478_1778940277.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در واکنش به نمایش و آموزش کار با سلاح در صداوسیما یک شهروند در پیامی به ایران اینترنشنال این اقدام را نشانه سقوط حکومت خواند و مخاطبی دیگر به حرکت مشابه در لیبی قبل از سقوط حکومت معمر قذافی اشاره کرد.
+
+پیام این مخاطبان با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## FarsiVOA — post 217897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺برنده اسکار فیلم کوتاه را بشناسیم: فیلمی یادآور خفقان ایران با بازی زر امیرابراهیمی
+
+▪️«کشور من در شرایطی است که نه اسکار و نه هیچ چیزی [از این دست الان] برای مردم اهمیتی ندارد». این حرف جعفر پناهی است که کاندیدای دو اسکار بهترین فیلم بین‌‌المللی و بهترین فیلمنامه سال را از آن خود کرد. او درست پیش از برگزاری مراسم اسکار ۱۴۰۵ و در مرحله نهایی کمپین اسکار فیلمش «یک تصادف ساده» که در موزه آکادمی علوم و هنرهای سینمایی آمریکا برگزار می‌شد، می‌خواست توضیح دهد که فقط به خواست کمپانی «نئون» صاحب پخش جهانی فیلمش و به احترام آکادمی اسکار، در این کمپین حاضر شده است، اما در دل و از درون، رغبتی برای حضور در میدان این بازی ندارد. تأکید او در بسیاری مصاحبه‌ها و سخنرانی‌‌هایش در فصل جوایز سینمایی سال آمریکا بر این بود که مثل هر ایرانی دیگر بعد از کشتار دی ۱۴۰۴، در چنین حالی است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-oscar-film-winner-zar-amirebrahimi-panahi-/8150673.html/?nocach=1
+</div>
+
+## FarsiVOA — post 217896
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217896_1778940278.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی از وقوع آتش‌سوزی در یک کارخانه روغن موتور، ‌روز شنبه، ۲۶ اردیبهشت ۱۴۰۵، در مراغه خبر دادند و اعلام کردند اطفای حریق ادامه دارد. تا این لحظه جزئیاتی از علت آتش‌سوزی و تلفات احتمالی منتشر نشده است.
+</div>
+
+## IranianMinds — post 20245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منبع پاکستانی به الحدث: ما از آمریکا و ایران می‌خوایم برای جلوگیری از جنگ انعطاف بیشتری از خودشون نشون بدن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل هامر ایاد محمد آلماتوک و خالد محمد سالم گودا، دو تروریست سازمان تروریستی حماس را که در 7 اکتبر به خاک اسرائیل حمله کردند و توطئه های تروریستی را علیه نیروهای ما ترویج کردند، کشتند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هشدار مقام‌های ایران به آمریکا و کشورهای منطقه درباره احتمال آغاز مجدد جنگ
+
+برخی از مقام‌های جمهوری اسلامی ایران امروز درباره احتمال آغاز مجدد جنگ، به آمریکا و کشورهای منطقه هشدار دادند.
+
+محمد مخبر، مشاور رهبر جمهوری اسلامی ایران با اشاره به حملات متقابل ایران به برخی از کشورهای منطقه در جریان جنگ اخیر گفته است «پاسخ جمهوری اسلامی به سنگرهای استیجاری سنتکام (فرماندهی مرکزی آمریکا) در جنگ اخیر تمام‌عیار نبود اما قطعا این خویشتنداری همیشگی نیست.»
+
+آقای مخبر گفته است «ایران سال‌ها به چشم دوست و برادر به آنها نگاه کرد ولی آنها با پیش‌فروش استقلال خود، حتی خاک و خانه‌هایشان را در اختیار دشمنان فلسطین و ایران قرار دادند.»
+
+نورنیوز، رسانه نزدیک به دبیرخانه شورای عالی امنیت ملی ایران هم به نقل از «یک مقام ارشد نظامی» که نامش آورده نشد، هشدار داده است که در صورت حمله مجدد به ایران «اهدافی که در جریان جنگ ۴۰ روزه، بنا بر ملاحظاتی مورد اصابت قرار نگرفتند، این‌بار در اولویت عملیاتی قرار گرفته‌اند.»
+
+https://bbc.in/4uytDuB
+@BBCPersian
+</div>
+
+## Hranews — post 112971
+
+<div align="center">
+  <img src="telegram/content/Hranews_112971_1778940280.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پخش یک گزارش ویدیویی در صداوسیما با محوریت «آموزش نظامی در سنگر مساجد»، نگرانی‌های جدی درباره وضعیت حقوق کودکان در ایران را تشدید کرده است. در این ویدیو، کودکان و نوجوانانی دیده می‌شوند که در کنار بزرگسالان، تحت نظارت نیروهای بسیج، نحوه کار با سلاح‌هایی مانند کلاشینکف و وینچستر را آموزش می‌بینند. در بخشی از این گزارش، برگزارکنندگان به‌صراحت از «آموزش جزئیات کار با سلاح» سخن می‌گویند و شرکت‌کنندگان نوجوان نیز از حضور خود برای یادگیری استفاده از این تجهیزات نظامی خبر می‌دهند؛ امری که نشان‌دهنده سازمان‌یافتگی این برنامه‌ها در بسترهای عمومی همچون مساجد است.
+
+چندی پیش نیز یک نوجوان ۱۷ ساله در شهرستان دیر، هنگام شرکت در آموزش‌های نظامی تحت نظارت بسیج، جان باخت. این روند در حالی دنبال می‌شود که ایران از کشورهای عضو پیمان‌نامه #حقوق_کودک بوده و متعهد به جلوگیری از به‌کارگیری و آموزش نظامی به افراد زیر ۱۸ سال است.
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 120398
+
+<div align="center">
+  <a href="telegram/content/alonews_120398_1778940281.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیویی از ورود وزیر کشور پاکستان به ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120397
+
+<div align="center">
+  <a href="telegram/content/alonews_120397_1778940281.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون بمباران در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120396
+
+<div align="center">
+  <img src="telegram/content/alonews_120396_1778940281.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آدرنالین خالص
+🔥
+
+
+💥سلتیک در آخرین بازی فصل مقابل هارت به برتری ۳بر۱ رسید و قهرمان اسکاتلند شد
+
+
+🚫هارت رقیب مستقیم سلتیک بود و با یک تساوی هم میتونست قهرمان بشه اما با گل دقیقه ۸۹ مائدا قافیه رو باخت
+
+@AloSport
+</div>
+
+## alonews — post 120395
+
+<div align="center">
+  <a href="telegram/content/alonews_120395_1778940282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️به گواهی تاریخی هاشمی رفسنجانی، خون کودکان میناب و تمام قربانیان جنگ ایران و آمریکا به گردن علی خامنه‌ای است.
+
+
+🔴هاشمی رفسنجانی: «نظرم آن بود که باید مسائل با آمریکا را حل کنیم. با آقای خامنه‌ای یکی دو ساعت بحث کردیم، ولی به نتیجه نرسیدیم.
+
+
+🔴من گفتم: ما حرف دیگری به شما نمی‌توانیم بزنیم، فقط مساله‌ی ما هست و خدا؛ بالاخره روز قیامت از ما می‌پرسند این همه ضرری که این طرف (به مردم ایران) هست، اگر این‌ها را شما به عهده می‌گیرید من دیگر حرفی ندارم.»
+
+
+🔴علی خامنه‌ای گفت: «بله جواب خدا با من».
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 17:24
 ---
 
