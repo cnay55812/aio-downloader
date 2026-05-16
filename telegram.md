@@ -7,6 +7,112 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 18:52
+---
+
+## VahidOOnLine — post 240496
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240496_1778944942.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+اشتوتگارت | آلمان؛ گردهمایی ایرانیان - گزارشگر شنبه ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ پادشاه خودخوانده سوئیس که خود را «شاه یوناس اول» می‌نامد، با وجود جنجال‌های فراوان، همچنان به گسترش نفوذ خود ادامه می‌دهد. یوناس لاووینر، شهروند ۳۱ ساله سوئیسی-مراکشی، در سال ۲۰۱۹ طی مراسمی در کلیسای نایدگ شهر برن تاج‌گذاری کرد و خود را «پادشاه نمادین سوئیس» نامید؛ عنوانی که در کشوری بدون سنت سلطنتی و بدون خانواده سلطنتی رسمی، بحث‌برانگیز بوده است.
+
+لاووینر که در یک شرکت داروسازی نیز مشغول به کار است، طی سال‌های اخیر با استفاده از یک خلا در قوانین سوئیس توانسته حدود ۱۱۷ هزار متر مربع زمین بدون مالک را در نقاط مختلف کشور به نام خود ثبت کند. او اکنون مالک حدود ۱۵۰ قطعه زمین، از جمله ۸۳ جاده، است و می‌گوید روزانه بیش از ۵ هزار نفر از جاده‌های متعلق به او استفاده می‌کنند.
+
+فعالیت‌های او باعث درگیری‌های حقوقی با مقام‌های محلی شده است. در یکی از موارد، او برای واگذاری خیابانی در منطقه گئونزه خواستار پرداخت ۱۵۰ هزار فرانک یا تغییر نام آن به «خیابان لاووینر» شده است؛ پیشنهادی که رد شد و به شکایت قضایی انجامید.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341817
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341817_1778944944.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: @VP lays out in blunt terms who the victims are when fraudsters target benefits Americans rely on most on @SatAmericaFNC.
+
+“There really are two costs and two victims. One is taxpayers getting fleeced... But it’s also there’s these programs that people in my family that I have benefited from that are meant to provide food to low income kids, are meant to ensure that if you can’t afford a doctor, you can still have access to medical care. Those programs are going to be destroyed by the fraudsters.”
+</div>
+
+## IranIntlTV — post 337493
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337493_1778944946.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیمای جمهوری اسلامی در برنامه‌ای آموزش استفاده از سلاح گرم توسط یک نظامی به مجری را به نمایش گذاشت. در بخشی از این برنامه، مجری به پرچم امارات متحده عربی شلیک کرد.
+گفت‌وگو با فروغ کنعانی، پژوهشگر جامعه‌شناسی
+@iranintltv
+</div>
+
+## ManotoTV — post 105522
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105522_1778944948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+اشتوتگارت | آلمان؛ گردهمایی ایرانیان - گزارشگر شنبه ۲۶ اردیبهشت
+</div>
+
+## FarsiVOA — post 217905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با حسن هاشمیان، به آتش‌بس شکننده میان اسرائیل و لبنان، بازداشت چهره‌های کلیدی شبکه‌های نیابتی جمهوری اسلامی و تشدید عملیات پنهان آمریکا و اسرائیل پرداختیم و پرسیدیم چرا به رغم تلاش‌های جمهوری اسلامی و حزب الله لبنان، آتش بس میان اسرائیل و لبنان تمدید شد؟
+</div>
+
+## manototv — post 105522
+
+<div align="center">
+  <a href="telegram/content/manototv_105522_1778944949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+اشتوتگارت | آلمان؛ گردهمایی ایرانیان - گزارشگر شنبه ۲۶ اردیبهشت
+</div>
+
+## alonews — post 120423
+
+<div align="center">
+  <a href="telegram/content/alonews_120423_1778944952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مدیر روس‌اتم: عملیات بتن‌ریزی و آرماتوربندی ساختمان‌های واحد دوم نیروگاه هسته‌ای بوشهر در ایران از سر گرفته شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120422
+
+<div align="center">
+  <a href="telegram/content/alonews_120422_1778944952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات ارتش اسرائیل به لبنان ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 18:45
 ---
 
