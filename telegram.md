@@ -7,6 +7,212 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 21:35
+---
+
+## VahidOOnLine — post 240522
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240522_1778954727.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان آلمان روز شنبه همزمان با سایر کشورها در حمایت از انقلاب ملی علیه جمهوری اسلامی در شهر کاسل تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11411
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11411_1778954729.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو سخت ترین شرایط بهمون روحیه دادی، تو جلسه ی بچه های تکنولوژی با شاهزاده به یادت بودیم!❤️
+</div>
+
+## WithYashar — post 11410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرهاد مجیدی با البطائح به دسته دو امارات سقوط کرد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341825
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341825_1778954729.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WELCOME HOME! The USS Winston S. Churchill returned home after a successful 11-month deployment with the USS Gerald R. Ford Carrier Strike Group supporting Operation Epic Fury.
+</div>
+
+## IranIntlTV — post 337511
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337511_1778954731.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان آلمان روز شنبه همزمان با سایر کشورها در حمایت از انقلاب ملی علیه جمهوری اسلامی در شهر کاسل تجمع کردند.
+</div>
+
+## FarsiVOA — post 217920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل: آخر این هفته، حدود ۱۰۰ موضع متعلق به حزب‌الله در جنوب لبنان را هدف قرار دادیم
+
+▪️ارتش اسرائیل شامگاه شنبه ۲۶ اردیبهشت اعلام کرد در دو روز پایانی هفته (جمعه و شنبه)، حدود ۱۰۰ موضع متعلق به گروه تروریستی حزب‌الله در جنوب لبنان را هدف قرار داده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8150704.html/?nocach=1
+</div>
+
+## DW_Farsi — post 124773
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124773_1778954732.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نورنیوز از آماده‌سازی طرح "پاسخ فوری" ایران به آمریکا خبر داد
+
+یک مقام نظامی آگاه به نورنیوز، نزدیک به شورای عالی امنیت ملی گفته است، در صورت هرگونه اقدام نظامی آمریکا علیه ایران، نیروهای مسلح جمهوری اسلامی طرح "پاسخ فوری و گسترده" را اجرا خواهند کرد.
+
+این مقام گفته است: «اهدافی که در جریان جنگ ۴۰ روزه، بنا بر ملاحظاتی مورد اصابت قرار نگرفتند، این‌بار در اولویت عملیاتی قرار گرفته‌اند.»
+
+او همچنین گفته پاسخ احتمالی ایران بر اساس "حداکثر فشار متقابل" طراحی شده و شامل حملات همزمان به منافع و زیرساخت‌های آمریکا در منطقه خواهد بود.
+
+این اظهارات پس از آن مطرح می‌شود که دونالد ترامپ از احتمال انجام "عملیات پاکسازی سبک" علیه ایران سخن گفته بود.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14252
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14252_1778954733.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پارلمان عراق خواستار پیگیری بین‌المللی انتقال «محمد باقر السعدی» به آمریکا شد
+
+💢پارلمان عراق از وزارت خارجه این کشور خواست درباره ربوده‌شدن «محمد باقر السعدی» از ترکیه و انتقال او به آمریکا، اقدامات و پیگیری‌های بین‌المللی انجام دهد.
+
+بر اساس گزارش‌ها:
+
+▪️ نمایندگان عراقی این اقدام را نقض حاکمیت و قوانین بین‌المللی دانسته‌اند
+▪️ از بغداد خواسته شده موضوع را از مسیرهای دیپلماتیک و حقوقی دنبال کند
+▪️ جزئیات بیشتری درباره نحوه انتقال السعدی منتشر نشده است
+
+💢این درخواست پس از اعلام بازداشت السعدی توسط اف‌بی‌آی آمریکا مطرح شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20255
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20255_1778954734.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+
+اگر به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکا‌یی‌ها باشید، ما شما را پیدا خواهیم کرد و شما را خواهیم کشت.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️دبیرکل فیفا و رئیس فدراسیون فوتبال ایران در استانبول با هم دیدار کردند
+
+دبیرکل فیفا و مهدی تاج، رئیس فدراسیون فوتبال ایران، امروز در استانبول با هم دیدار کردند.
+
+یک منبع آگاه به خبرگزاری رویترز گفته است که ماتیاس گرافستروم قرار بوده در این دیدار درباره حضور ایران در جام جهانی به مقام‌های جمهوری اسلامی ایران «اطمینان‌» بدهد.
+
+قرار است ایران هر سه بازی مرحله گروهی جام جهانی را در ایالات متحده برگزار کند، اما از زمان حمله آمریکا و اسرائیل به ایران در نهم اسفند حضور تیم ملی ایران در این رقابت‌ها که از کمتر از یک ماه دیگر برگزار می‌شود، با ابهام روبه‌رو شده است.
+
+پس از آن‌که مهدی تاج به دلیل ارتباطش با سپاه پاسداران انقلاب اسلامی از ورود به کانادا منع شد، ابهام درباره وضعیت ایران بیشتر شد. او برای شرکت در نشست فیفا که در ونکوور برگزار می‌شد، عازم این کشور شد اما ماموران اجازه ورود او به خاک کانادا را ندادند.
+
+جمهوری اسلامی ایران همزمان با حملات آمریکا و اسرائیل ابتدا اعلام کرده بود که تیم ملی ایران احتمالا در جام جهانی شرکت نمی‌کند اما سپس مقام‌های وزارت ورزش ایران حضور تیم را منوط به تصمیم شورای عالی امنیت ملی کردند.
+
+آمریکا و کانادا، که همراه با مکزیک میزبان مشترک جام جهانی هستند، سپاه پاسداران را یک «نهاد تروریستی» طبقه‌بندی و اعلام کرده‌اند افرادی را که با این نیرو ارتباط دارند، به کشورشان راه نخواهند داد.
+
+تیم ملی فوتبال ایران قرار است دو روز دیگرعازم اردوی آماده‌سازی در ترکیه شود.
+
+https://bbc.in/4nGtXEU
+@BBCPersian
+</div>
+
+## Hranews — post 112974
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهایی یک زندانی از چوبه دار در سلماس
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک زندانی در سلماس که پیشتر از بابت اتهام قتل به #اعدام محکوم شده بود، با اعلام رضایت اولیای دم از چوبه دار رهایی یافت.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 120456
+
+<div align="center">
+  <a href="telegram/content/alonews_120456_1778954734.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری از شهر بنت جبیل، قبل و بعد از حمله اسرائیل به این شهر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120455
+
+<div align="center">
+  <a href="telegram/content/alonews_120455_1778954734.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: بیش از یک میلیون لبنانی توسط اسرائیل از خانه‌هایشان رانده شده‌اند
+
+
+🔴بیش از یک میلیون نفر در لبنان بر اثر حملات اسرائیل آواره شده‌اند، از جمله پناهندگان فلسطینی که دهه‌ها فقدان و آوارگی را تجربه می‌کنند.
+
+
+🔴بسیاری از خانواده‌ها همچنان بی‌خانمان هستند، زیرا محله‌های حومه جنوبی بیروت با ویرانی گسترده و ناامنی مداوم مواجه هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120454
+
+<div align="center">
+  <a href="telegram/content/alonews_120454_1778954735.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ، بایدن رو مسخره کرده : چه تفاوت بزرگی!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 21:25
 ---
 
