@@ -7,6 +7,96 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 08:53
+---
+
+## pm_afshaa — post 90830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز از دنده چپ پا شدم میخام همه رو فحش بدم کیرم تو ناموس سپاهی و بسیجی خار مادر همتونو با هم گاییدم با اون رهبر چلاق مقواییتون
+</div>
+
+## pm_afshaa — post 90829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز از دنده چپ پا شدم میخام همه رو فحش بدم
+
+کیرم تو ناموس سپاهی و بسیجی خار مادر همتونو با هم گاییدم با اون رهبر چلاق مقواییتون
+</div>
+
+## pm_afshaa — post 90828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337410
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337410_1778909036.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای شنبه ۲۶ اردیبهشت
+@iranintltv
+</div>
+
+## IranianMinds — post 20223
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20223_1778909037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۱۸ و ۱۹ دی ، میلیونها ایرانی بند کفششون رو بستند که ایرانو از بند جمهوری اسلامی آزاد کنند. بیش از پنجاه هزار نفرشون دیگه برنگشتند. ما تا روز دادخواهی، به زندگی عادی برنخواهیم گشت.
+آخرین عکس از جاویدنام محسن جبارزاده
+
+@IranianMinds
+</div>
+
+## alonews — post 120306
+
+<div align="center">
+  <a href="telegram/content/alonews_120306_1778909038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به دستور ممدانی شهردار نیویورک، ۴۰۰ موتور سیکلت این شهر که رانندگان آن ها از کلاه ایمنی استفاده نمی‌کردند منهدم شدند
+
+
+🔴به گفته وی، این کار در راستای تقویت فرهنگ استفاده از کلاه ایمنی انجام شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120305
+
+<div align="center">
+  <a href="telegram/content/alonews_120305_1778909038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور فنلاند: آمریکا از ناتو خارج نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120304
+
+<div align="center">
+  <a href="telegram/content/alonews_120304_1778909038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس سازمان اداری و استخدامی: ساعت کاری جدید اداره‌ها از امروز اجرایی می‌شود و تا نیمه شهریور ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 08:44
 ---
 
