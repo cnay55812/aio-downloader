@@ -7,6 +7,112 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 01:02
+---
+
+## WithYashar — post 11426
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11426_1778967153.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب بیداریم !
+@withyashar
+</div>
+
+## IranIntlTV — post 337534
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337534_1778967154.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «شاهزاده رضا پهلوی روز شنبه در نشستی درباره آینده تکنولوژی در ایران، بر غیرقابل‌اصلاح بودن جمهوری اسلامی و وجود اتفاق‌نظر ملی برای سرنگونی آن تاکید کرد و گفت سیاست مماشات با حکومت نتیجه‌ای نخواهد داشت.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6043
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6043_1778967156.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Sat, 16 May 2026 21:25:20 UTC
+
+President Trump @POTUS:
+"https://x.com/lauraloomer/status/2055609922935496847?s=42"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+"https://x.com/lauraloomer/status/2055609922935496847?s=42"
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6042
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6042_1778967156.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Laura Loomer ✓ @LauraLoomer Sat, 16 May 2026 11:22:51 UTC EXCLUSIVE: 🚨 Congressman Randy Fine @RepFine tells me he was approached by Cynthia West @Cyntaxed007 (Thomas Massie’s accuser) last year in Florida about Thomas Massie’s @RepThomasMassie…
+</div>
+
+## Shin_Persian — post 6041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Laura Loomer ✓ @LauraLoomer
+Sat, 16 May 2026 11:22:51 UTC
+
+EXCLUSIVE:
+
+🚨 Congressman Randy Fine @RepFine tells me he was approached by Cynthia West @Cyntaxed007 (Thomas Massie’s accuser) last year in Florida about Thomas Massie’s @RepThomasMassie alleged financial ties to Iran. 🚨
+
+Rep. Randy Fine revealed to me that he met Thomas
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+اختصاصی:
+
+🚨 رندی فاین @RepFine، عضو کنگره، به من گفت که سال گذشته در فلوریدا، سینتیا وست @Cyntaxed007 (متهم‌کننده توماس ماسی) در مورد پیوندهای مالی ادعایی توماس ماسی @RepThomasMassie با ایران به او مراجعه کرده است. 🚨
+
+نماینده رندی فاین برای من فاش کرد که با توماس ملاقات کرده است...
+
+𝕏 · @shin_persian
+</div>
+
+## Dirty_Kids — post 389585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏شاباش های دهه هفتاد هشتاد اینطوری بود که طرف میگفت حالا که دارم هزینه میکنم بذارم دهنش.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389581
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389581_1778967157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تصاویر وایرال شده از یه خانم اهل انگلیس که خواستارِ اخراج مهاجرین از این کشوره.
+
++ ارزش دانلود: 195 از 100
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 00:52
 ---
 
