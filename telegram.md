@@ -7,6 +7,18 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 05:43
+---
+
+## FarsiVOA — post 217868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مراسم «انجمن قلم آمریکا» و اهدای «جایزه آزادی نوشتن باربی» به گلرخ ایرایی و علی اسداللهی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 05:34
 ---
 
@@ -51,8 +63,6 @@ https://bbc.in/4dxLD0L
 📷 EPA/Shutterstock
 @BBCPersian
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
