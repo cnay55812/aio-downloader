@@ -7,6 +7,204 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 23:45
+---
+
+## WithYashar — post 11420
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11420_1778962551.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : آرامش فبل از طوفان
+
+قایق تندرو با پرچم جمهوری اسلامی دیده میشود …
+@withyashar
+</div>
+
+## mwarmonitor — post 9176
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9176_1778962552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در سوشال تروث
+
+«این آرامشِ پیش از طوفان بود»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 90868
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90868_1778962552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ ارامش قبل از طوفان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادت نی که یادت بیارم از ترس کونت ری اکت و کامنتای چنلتو چجوری تو ۵ مین کاری کردم ببندی
+افرین پسر خوب دیگه از کیر ما بالا نرو خودتو حکومتتو همه رو با هم گاییدم😂😂
+</div>
+
+## pm_afshaa — post 90866
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برا کسی که خودش تو امارات زندگی میکنه خیلی گه میخوری عزیزم 2 بار مادرتو گاییدم هنوز ادم نشدی کونت میخاره بگیرم باز کونت بزارم بچه خایه مال
+</div>
+
+## VahidOnline — post 75507
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75507_1778962553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث سوشال با انتشار طرحی گرافیکی از خود و یک فرمانده نظامی آمریکایی نوشت: آرامش قبل از طوفان
+IranIntlbrk
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87436
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87436_1778962553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در سوشال تروث
+
+«این آرامشِ پیش از طوفان بود»
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337527
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337527_1778962553.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست «آینده تکنولوژی در ایران» گفت حتی اگر دوران گذار با موفقیت طی شود و مردم نظام آینده را انتخاب کنند، بدون احزاب و زیرساخت سیاسی آماده، اداره کشور ممکن نخواهد بود.
+
+او افزود: «اگر بخواهیم سیاسی فکر کنیم، اولویت نخست یک هدف ملی است؛ هدفی فراتر از چپ و راست، جمهوری‌خواه و پادشاهی‌خواه یا هر گرایش دیگر. اما وقتی وارد مرحله سیاست عملی می‌شویم، باید زیرساخت سیاسی کشور را هم فراهم کنیم. پایه‌های تحزب در ایران باید تقویت شود.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14271
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14271_1778962555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢تکرار تهدید کاخ سفید با انتشار تصویری از ترامپ در اتاق جنگ
+
+💢کاخ سفید پیامی تهدیدآمیز از رئیس جمهوری آمریکا با عنوان «شوخی نداریم» همراه با تصویری از حضور او در اتاق جنگ منتشر کرد.
+
+💢در پیام کاخ سفید آمده است: «اگر به آمریکایی‌ها آسیب بزنید، یا برای آسیب‌زدن به آمریکایی‌ها توطئه و طرح‌ریزی کنید، ما شما را خواهیم یافت.»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20258
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20258_1778962556.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ در تروث‌سوشال یک انیمیشنی را منتشر کرد که در آن به ناو آمریکایی دستور شلیک به هدفی که پرچم جمهوری اسلامی را دارد داده و می‌گوید در فهرست اهدافمان، آتش.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281240
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281240" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه شصت دقیقه روز شنبه ۲۶ اردیبهشت ۱۴۰۵ است
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+با هشتگ BBCPersianRadio# با ما در ارتباط باشید.
+@BBCPersian
+</div>
+
+## alonews — post 120481
+
+<div align="center">
+  <a href="telegram/content/alonews_120481_1778962557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید پیامی تهدیدآمیز از ترامپ با عنوان «شوخی نداریم» همراه با تصویری از حضور او در اتاق جنگ منتشر کرد.
+
+
+🔴در پیام کاخ سفید آمده است: «اگر به آمریکایی‌ها آسیب بزنید، یا برای آسیب‌زدن به آمریکایی‌ها توطئه و طرح‌ریزی کنید، ما شما را خواهیم یافت.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120480
+
+<div align="center">
+  <img src="telegram/content/alonews_120480_1778962557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سال 1374، کل پاساژ علاءالدین: 500 میلیون
+
+سال 1405، آیفون 17 پرومکس: 500 میلیون
+
+[@AloTweet]
+</div>
+
+## alonews — post 120479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 FLASH NET VPN 
+🔥 
+⚠️ شرایط جنگی؟ نت ملی؟ فیلترینگ سنگین؟ 
+💪 ما هنوز پایدار و بدون قطعی کنار شماییم! 
+🚀 پینگ خفن 
+🌐 سرعت فوق‌العاده پایدار 
+😍 رضایت فراوان کاربران 
+🤖 ربات کاملاً خودکار 
+💸 نرخ‌ها پایین‌تر از همه جا 🇧🇬 تک لوکیشن بلغارستان ♾ بدون ضریب 
+🔗 دارای لینک…
+</div>
+
+## alonews — post 120478
+
+<div align="center">
+  <a href="telegram/content/alonews_120478_1778962558.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه به نقل از پاکستان: حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود 
+✅ @AloNews خبر جنگ
+</div>
+
+
+---
+### ⚠️ کانال‌های با خطا در این بروزرسانی
+
+* DEJradio
+
+دلایل احتمالی: مسدود بودن کانال، حذف کانال، یا خطای شبکه.
+---
+
+---
 📅 بروزرسانی: 1405/02/26 23:35
 ---
 
