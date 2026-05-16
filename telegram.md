@@ -7,6 +7,285 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 21:05
+---
+
+## VahidOOnLine — post 240519
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240519_1778952913.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️زمین‌لرزه‌ای به بزرگی ۴.۵ روز شنبه ۲۶ اردیبهشت شهر گلوگاه در استان مازندران را لرزاند.
+به گزارش صداوسیما، کانون این زمین‌لرزه در عمق ۱۰ کیلومتری زمین ثبت شده است. تاکنون گزارشی از خسارات جانی یا مالی این حادثه منتشر نشده و بررسی‌ها در این زمینه ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگه به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکایی‌ها باشید، ما شما رو پیدا خواهیم کرد و خواهیم کشت.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+BREAKING NEWS: A car reportedly drove into a crowd in the northern Italian city of Modena on Saturday, injuring several people. The vehicle slammed into a store window, and its driver allegedly stabbed a passerby who tried to intervene, according to local Italian media.
+
+https://www.foxnews.com/world/several-injured-after-car-plows-italy-crowd-driver-stabs-passerby-report
+</div>
+
+## FoxNewsTwitter — post 341823
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341823_1778952913.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A massive landspout tears through wildfire-scorched land in New Mexico as crews battle a blaze that burned 23,000 acres.
+
+Dubbed the “Devil’s Dust Devil,” the towering vortex spun across the charred landscape as authorities warn of thunderstorms that could bring further wildfire threats to the area.
+</div>
+
+## pm_afshaa — post 90858
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90858_1778952914.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگه به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکایی‌ها باشید، ما شما رو پیدا خواهیم کرد و خواهیم کشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2616
+
+<div align="center">
+  <a href="telegram/content/iaghapour_2616_1778952915.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛍 خرید اشتراک gemini pro تنها با 299 هزار تومان در پریم استور.
+
+
+☄️ اقتصادی ترین گزینه ممکن
+
+
+❔ چرا پریم استور؟
+
+🕖تحویل سریع (بین 1 تا3 ساعت)
+
+🔒  بدون نیاز به اطلاعات و لاگین حساب شما
+ضمانت کامل 30 روز
+علاوه بر جمنای، اشتراک سرویس‌های زیر هم برای خرید موجود است:
+
+(Claude • Chatgpt plus, go  • Grok • Perplexity • Cursor • Leonardo • Gemini ultra •.....)
+
+
+🛒 شروع خرید از طریق ربات :
+
+🤖 @prem_store_bot
+
+
+🌐 وب سایت | 
+💡 کانال تلگرام | 
+💬 ارتباط با پشتیبانی
+</div>
+
+## IranIntlTV — post 337507
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337507_1778952915.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز گزارش داد آمریکا و اسرائیل در حال گسترده‌ترین آمادگی نظامی از زمان برقراری آتش‌بس هستند و تنها تصمیم نهایی دونالد ترامپ باقی مانده است.
+
+گفت‌وگو با اشکان صفایی و اردوان روزبه، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337506
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337506_1778952917.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخی مجری‌های صداوسیمای جمهوری اسلامی در برنامه‌های زنده تلویزیونی با اسلحه روی آنتن رفتند. در شبکه افق، وابسته به سپاه پاسداران، یک نیروی نظامی با صورت پوشیده نحوه استفاده از سلاح را آموزش داد و مجری برنامه هم در استودیو شلیک کرد و گفت گلوله‌ها به سمت پرچم امارات شلیک شده‌اند.
+
+گفت‌وگو با ایمان آقایاری، فعال سیاسی
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: اگر توافقی حاصل نشود، جمهوری اسلامی «روزگار بسیار بدی» خواهد داشت
+
+دونالد ترامپ در یک گفت‌وگوی تلفنی با شبکه خبری تلویزیونی ب اف ام فرانسه اظهار داشت که نمی‌داند آیا به‌زودی توافقی با جمهوری اسلامی حاصل خواهد شد یا نه.
+
+رییس‌جمهور ایالات متحده گفت: «هیچ ایده‌ای ندارم که آیا آن‌ها این کار را خواهند کرد یا نه. اگر این کار را نکنند، روزگار بسیار بدی خواهند داشت، روزگار بسیار بدی. بهتر است که یک توافق منعقد کنند.»
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹زمین‌لرزه‌ای به بزرگی ۴.۵ ریشتر دقایقی پیش گلوگاه در استان مازندران را لرزاند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لایو امشب ساعت 22 آغاز میشه
+</div>
+
+## Persian_Trend_Official — post 14244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل شنبه اعلام کرد که در آخر این هفته حدود ۱۰۰ موضع حزب‌الله را در جنوب لبنان مورد حمله قرار داده است.
+
+بر اساس اعلام ارتش اسرائیل، این اهداف شامل پست‌های مراقبت و دیده‌بانی، انبارهای تسلیحات و سایر زیرساخت‌هایی بوده که توسط این گروه برای پیشبرد حملات استفاده می‌شود.
+
+این حملات در سراسر جنوب لبنان انجام شده و منطقه صور را نیز دربر گرفته است.
+
+در همین حال، در ۲۴ ساعت گذشته، حزب‌الله چندین پهپاد و گلوله خمپاره به سمت نیروها در جنوب لبنان شلیک کرده است.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سازمان پزشکی قانونی ایران اعلام کرد که در سال گذشته ۸۳۱ نفر بر اثر مسمومیت با گاز منوکسید کربن جان خود را از دست دادند و استان تهران با ۱۲۷ مورد مرگ بیشترین آمار را ثبت کرده است. 🔸در این آمار که همشهری‌آنلاین روز شنبه بازتاب داده است، بیشترین میزان مرگ و…
+</div>
+
+## RadioFarda — post 157267
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157267_1778952918.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سازمان پزشکی قانونی ایران اعلام کرد که در سال گذشته ۸۳۱ نفر بر اثر مسمومیت با گاز منوکسید کربن جان خود را از دست دادند و استان تهران با ۱۲۷ مورد مرگ بیشترین آمار را ثبت کرده است.
+
+🔸در این آمار که همشهری‌آنلاین روز شنبه بازتاب داده است، بیشترین میزان مرگ و میر در بهمن‌ماه رخ داده؛ زمانی که استفاده از وسایل گرمایشی افزایش می‌یابد.
+
+🔸با در نظر گرفتن جمعیت، نرخ مرگ ناشی از گازگرفتگی در ایران حدود ۹ نفر در هر یک میلیون نفر برآورد می‌شود که نسبت به استانداردهای جهانی رقم بالایی است.
+
+🔸بر اساس آمارهای منتشرشده در ایالات متحده، سالانه حدود ۴۰۰ تا ۵۰۰ نفر بر اثر مسمومیت غیرعمدی با منوکسیدکربن جان خود را از دست می‌دهند، در حالی که جمعیت آمریکا نزدیک به چهار برابر ایران است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157266
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157266" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقال محمدباقر سلیمانی به آمریکا؛ آینده ایران، عراق و ترکیه در گفتگو با علی معموری
+
+🔸در حالی که تنش میان تهران و واشینگتن همچنان شکننده است، اف‌بی‌آی از بازداشت و انتقال یکی از اعضای ارشد گروه کتائب حزب‌الله عراق به آمریکا خبر داده؛ گروهی که از مهم‌ترین نیروهای نیابتی جمهوری اسلامی در منطقه به شمار می‌رود. محمدباقر سعد داوود السعدی، معروف به «محمدباقر سلیمانی» و از نزدیکان قاسم سلیمانی، با اتهام‌های مرتبط با تروریسم و همکاری با سپاه قدس روبه‌روست. بازداشت او در ترکیه، پرسش‌هایی را درباره آینده شبکه نیروهای نیابتی ایران و پیام احتمالی این اقدام آمریکا برای تهران مطرح کرده است. علی معموری، کارشناس مسائل منطقه، به این موضوع پرداخته است.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 281231
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281231_1778952919.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺روزنامه نیویورک تایمز به نقل از دو مقام در خاورمیانه بدون ذکر نام، گزارش داده است که آمریکا و اسرائیل در حال آماده شدن برای احتمال از سرگیری حملات علیه ایران هستند؛ حملاتی که به طور بالقوه حتی در هفته پیش رو می‌تواند شروع شود.
+
+به گفته این دو مقام که به شرط فاش نشدن نامشان با نیویورک تایمز صحبت کرده‌اند، تدارکات آمریکا و اسرائیل، گسترده ترین اقدامات آنها برای آمادگی جنگی از زمان برقراری آتش‌بس است.
+
+وزیر دفاع آمریکا هم این هفته در کنگره به قانون‌گذاران گفته بود که پنتاگون برای سناریوهای مختلف برنامه‌هایی در دست دارد؛ هم برای جابه‌جایی امکانات نظامی و تشدید جنگ در صورت لزوم و هم برای کاهش و خارج کردن نیروها از منطقه.
+
+نیویورک تایمز به نقل از مقام‌های آمریکایی گزارش کرده است که اگر دونالد ترامپ تصمیم به حمله بگیرد، یک گزینه بمباران شدیدتر مراکز نظامی و زیرساخت‌های ایران است و گزینه دیگر عملیات زمینی برای خارج کردن ذخایر اورانیوم غنی‌شده ایران که تصور می‌شود پس از بمباران تاسیسات هسته‌ای ایران در جنگ دوازده روزه زیر آوار مدفون شده‌ است.
+
+📸U.S. Navy via Getty Images
+
+https://bbc.in/3RKVVDe
+@BBCPersian
+</div>
+
+## Hranews — post 112973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصدومیت ۵ کارگر در سایه فقدان ایمنی کار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– در سایه فقدان ایمنی محیط و شرایط نامناسب کار، پنج #کارگر در شهرستان‌های بهارستان و ملایر طی حوادثی حین انجام کار مصدوم شدند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 120451
+
+<div align="center">
+  <img src="telegram/content/alonews_120451_1778952920.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌟 اشتراک v2ray استارلینک
+
+
+🗯گیگی 150,000 تومان
+
+🔗لینک ساب برا چک کردن مصرف و حجمتون
+
+🔥سرعت و کیفیت بالا
+
+✅ پشتیبانی دائم
+
+
+📱جهت خرید پیام بدین : @v2safeBot
+</div>
+
+## alonews — post 120447
+
+<div align="center">
+  <a href="telegram/content/alonews_120447_1778952920.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک حمله هوایی اسرائیل به تازگی خودرویی را در غرب شهر غزه هدف قرار داد که منجر به کشته شدن حداقل ۳ فلسطینی و زخمی شدن چندین نفر دیگر شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 20:55
 ---
 
