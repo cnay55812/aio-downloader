@@ -7,6 +7,126 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 16:05
+---
+
+## mwarmonitor — post 9154
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️اطلاعیه فوری ⚠️
+
+⚠️"با نزدیک شدن به لحظه درگیری‌های مجدد، ثانیه‌ها سرنوشت‌ساز شده‌اند. اکنون زمان انتخاب میان بقا یا قربانی شدن در راه منافع سران است. از پادگان‌ها و مراکز نظامی فاصله بگیرید و جان خود را فدای وعده‌های توخالی نکنید."
+
+⚠️با توجه به نشانه‌های موجود و احتمال آغاز مجدد درگیری‌های نظامی، حفظ هوشیاری و اتخاذ تصمیمات درست در این لحظات بحرانی برای تمامی گروه‌های جامعه، از شهروندان عادی تا بدنه نیروهای مسلح، امری حیاتی و سرنوشت‌ساز است.
+
+⚠️در همین راستا، به سربازان وظیفه و کادر نظامی توصیه می‌شود که از حضور در پادگان‌ها و مراکز نظامی خودداری کنند. تجربه و تاریخ نشان داده است که در اوج بحران‌ها، سران و تصمیم‌گیرندگان اصلی ساختار با تضمین مسیرهای خروج خود به کشورهای هم‌پیمان مانند چین و روسیه، بدنه رده‌پایین و نیروهای فریب‌خورده را به عنوان سپر بلا در میدان رها می‌کنند؛ بنابراین عاقلانه‌ترین راه، فاصله گرفتن از نظام و ایستادن در سمت درست تاریخ یعنی در کنار مردم است.
+
+⚠️همچنین از تمامی شهروندان و غیرنظامیان تقاضا می‌شود برای حفظ جان خود، فوراً از نزدیکی زیرساخت‌های انرژی از جمله پالایشگاه‌ها و نیروگاه‌ها و همچنین مراکز و پادگان‌های نظامی فاصله بگیرند. در نهایت، با توجه به پیش‌بینی‌ها مبنی بر احتمال تمرکز حملات بر روی امارات متحده عربی، از هموطنان مقیم این کشور درخواست می‌شود که در بالاترین سطح آمادگی و هوشیاری قرار داشته و مراقبت‌های لازم را به عمل آورند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341810
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341810_1778934936.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A retired Navy admiral warns UFOs may be controlled by a “higher-order non-human intelligence.”
+
+Tim Gallaudet, considered to be one of America’s leading voices on the UAP phenomenon, says he’s seen “data videos” showing craft moving seamlessly between the ocean and atmosphere at speeds beyond known technology.
+
+“I know we are aware of higher order non-human intelligence that direct the movement
+of these phenomena,” he said.
+</div>
+
+## IranIntlTV — post 337469
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337469_1778934937.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع استکهلم در گفت‌وگو با مهران عباسیان، خبرنگار ایران‌اینترنشنال، گفت: «ما پشت مردم داخل کشور هستیم و تا روز آزادی ایران به خیابان‌ها می‌آییم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337468
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337468_1778934939.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم کره جنوبی و ژاپن بار دیگر در پاسخ به فراخوان حمایت از انقلاب ملی و در راستای جلب توجه دولت سئول و توکیو به نقض گسترده حقوق بشر و اعدام‌‌ها توسط جمهوری اسلامی تجمع کردند.
+
+گزارش توماج طاهباز، خبرنگار ایران‌اینترنشنال، از پیام شرکت‌کنندگان در این تجمع‌ها
+
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14238
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14238_1778934942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ دوستان توجه داشته باشید که تیم «پرشین ترند» در هیچ‌یک از پلتفرم‌های داخلی، کانال یا گروه رسمی ندارد و هیچ‌گونه فعالیتی در این بسترها انجام نمی‌دهد.
+
+⚠️ لطفاً نسبت به سوءاستفاده افراد سودجو و صفحات جعلی هوشیار باشید.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایرنا: وزیر کشور پاکستان در یک سفر از پیش اعلام نشده در تهران است
+
+خبرگزاری رسمی ایرنا گزارش داده است که وزیر کشور پاکستان «در یک سفر از پیش اعلام نشده» در تهران است.
+
+ایرنا از قول منابع خود خبر داده است که محسن نقوی ساعاتی پیش وارد تهران شده و قرار است با برخی از مقام‌های جمهوری اسلامی ایران دیدار کند.
+
+پاکستان میانجی آتش‌بس کنونی بین ایران و آمریکاست و یک بار هم میزبان مقام‌های ارشد ایرانی و آمریکایی برای مذاکرات صلح شده که تاکنون بی‌نتیجه مانده است.
+
+وزیر کشور پاکستان یک ماه پیش همراه عاصم منیر، فرمانده ارتش این کشور به ایران سفر کرده بود.
+
+پاکستان یک روز پیش اعلام کرده بود که روند بازگرداندن بیست ملوان ایرانی و یازده پاکستانی که پس از توقیف کشتی آنان توسط آمریکا در آب‌های سنگاپور بودند در جریان است و وعده داده بود که همه آنها از تایلند به اسلام‌آباد منتقل می‌شوند.
+
+https://bbc.in/4nzZJmQ
+@BBCPersian
+</div>
+
+## alonews — post 120381
+
+<div align="center">
+  <a href="telegram/content/alonews_120381_1778934943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈از عجایب روزگار اینه تو مراسم بزرگداشت فردوسی نوحه پخش کردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120380
+
+<div align="center">
+  <a href="telegram/content/alonews_120380_1778934945.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شلیک رگباری در پخش مستقیم صداسیما
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 15:54
 ---
 
