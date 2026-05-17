@@ -7,6 +7,294 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 19:33
+---
+
+## VahidOOnLine — post 240652
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240652_1779033791.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+وین | اتریش؛ گردهمایی ایرانیان _ گزارشگر یکشنبه ۲۷ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240651
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240651_1779033793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در پیامی در شبکه اجتماعی ایکس به مناسبت روز جهانی ارتباطات نوشت: «در روزهای جنگ، فرزندان ما در ارتباطات و فناوری اطلاعات شبانه‌روز ایستادند تا ارتباطات کشور پایدار بماند.»
+او همچنین دسترسی باکیفیت و پایدار مردم به خدمات دیجیتال را «بخشی از آرامش، پیشرفت و حق زندگی شایسته مردم» ایران دانست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240650
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240650_1779033793.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازار تهران؛ ۲۷ اردیبهشت ـ گزارشگر
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240649
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240649_1779033796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+پورتو | پرتغال؛ گردهمایی ایرانیان ـ گزارشگر یکشنبه ۲۷ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240648
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240648_1779033798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گوگوش، خواننده نامدار ایرانی، در پیامی در اینستاگرام اعلام کرد مدال افتخار سال ۲۰۲۶ «جزیره الیس» را دریافت کرده و این جایزه را با «عشق و احترام» به مردم ایران تقدیم می‌کند.
+
+او نوشت: «دیشب افتخار داشتم نشان افتخار جزیره الیس را دریافت کنم؛ نشانی که به افرادی اهدا می‌شود که در جامعه آمریکا تأثیرگذار بوده‌اند و در عین حال ریشه‌ها و هویت فرهنگی خود را حفظ کرده‌اند.»
+
+«نشان افتخار جزیره الیس» یکی از شناخته‌شده‌ترین جوایز مدنی آمریکا است که از سال ۱۹۸۶ به افرادی از حوزه‌های هنر، فرهنگ، سیاست، علم، تجارت و فعالیت‌های اجتماعی اعطا می‌شود؛ افرادی که علاوه بر نقش‌آفرینی در جامعه آمریکا، بر حفظ پیشینه و هویت فرهنگی خود نیز تأکید داشته‌اند. این جایزه در جزیره الیس نیویورک، نماد ورود میلیون‌ها مهاجر به آمریکا، اهدا می‌شود.
+
+از چهره‌های شناخته‌شده‌ای که در سال‌های مختلف این نشان را دریافت کرده‌اند می‌توان به رونالد ریگان، ریچارد نیکسون، رزا پارکس، فرانک سیناترا، گلوریا استفان، ملاله یوسف‌زی و دونالد ترامپ اشاره کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ، رئیس‌جمهور ایالات متحده، در یک تماس تلفنی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، درباره ایران گفت‌وگو کرد؛ به گفته یک مقام اسرائیلی. باراک راوید خبرنگار آکسیوس
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 90908
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90908_1779033799.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندزی گراهام درباره ایران:
+به نظر من، کسایی که الان قدرت رو دستشون گرفتن با قبلی‌ها هیچ فرقی ندارن و باز هم میخوان جهان رو به هم بریزن، اسرائیل رو نابود کنن و به ما حمله کنن؛ باید بیشتر اونا رو ضعیف کنیم. رفتن به دنبال توافقی که هیچ‌وقت حاصل نمیشه، فقط جمهوری اسلامی رو قوی‌تر میکنه.
+
+هر قیمتی که لازم باشه، میپردازیم. این حرفی بود که چرچیل درباره شکست هیتلر میگفت و حالا برای ایران هم صدق میکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337650
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337650_1779033800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، درباره گرانی‌های شدید در ایران می‌گوید ۲۲ قلم کالای اساسی زندگی را بدون گوشت و برنج به قیمت بیش از هشت میلیون تومان خریده است.
+</div>
+
+## IranIntlTV — post 337649
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337649_1779033802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در پیامی در شبکه اجتماعی ایکس به مناسبت روز جهانی ارتباطات نوشت: «در روزهای جنگ، فرزندان ما در ارتباطات و فناوری اطلاعات شبانه‌روز ایستادند تا ارتباطات کشور پایدار بماند.»
+او همچنین دسترسی باکیفیت و پایدار مردم به خدمات دیجیتال را «بخشی از آرامش، پیشرفت و حق زندگی شایسته مردم» ایران دانست.
+https://iranintl.com/202605172706
+</div>
+
+## ManotoTV — post 105563
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105563_1779033803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+وین | اتریش؛ گردهمایی ایرانیان _ گزارشگر یکشنبه ۲۷ اردیبهشت
+</div>
+
+## ManotoTV — post 105562
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105562_1779033805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازار تهران؛ ۲۷ اردیبهشت ـ گزارشگر
+</div>
+
+## ManotoTV — post 105561
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105561_1779033807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+پورتو | پرتغال؛ گردهمایی ایرانیان ـ گزارشگر یکشنبه ۲۷ اردیبهشت
+</div>
+
+## Persian_Trend_Official — post 14341
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14341_1779033809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ناو هواپیمابر آبراهام لینکلن در فاصله ۲۴۵ کیلومتری از در آخرین تصاویر ماهواره ای ساحل ایران مستقر شده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 389624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یه تنِ ماهی خریدم ۳۰۰ تومن!
+فک کنم توش پری دریایی باشه.
+منتظرم خونه‌مون خالی شه درشو باز کنم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389623
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389623_1779033810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پسرا میتونن اینجوری نگاهتون کنن و فکر کنن روغن ماشین چقدر گرون شده خارشو گاییدم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389622
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389622_1779033811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+G27
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389621
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389621_1779033812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌شیعه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105563
+
+<div align="center">
+  <a href="telegram/content/manototv_105563_1779033814.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+وین | اتریش؛ گردهمایی ایرانیان _ گزارشگر یکشنبه ۲۷ اردیبهشت
+</div>
+
+## manototv — post 105562
+
+<div align="center">
+  <a href="telegram/content/manototv_105562_1779033815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازار تهران؛ ۲۷ اردیبهشت ـ گزارشگر
+</div>
+
+## manototv — post 105561
+
+<div align="center">
+  <a href="telegram/content/manototv_105561_1779033817.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+پورتو | پرتغال؛ گردهمایی ایرانیان ـ گزارشگر یکشنبه ۲۷ اردیبهشت
+</div>
+
+## alonews — post 120636
+
+<div align="center">
+  <a href="telegram/content/alonews_120636_1779033819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهباز شریف: امیدواریم دور دیگری از مذاکرات ایران و آمریکا را میزبانی کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120635
+
+<div align="center">
+  <a href="telegram/content/alonews_120635_1779033820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ عبری: تخمین اسرائیلی‌ها این است که آمریکا در طول این هفته به جنگ علیه ایران بازخواهد گشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 19:22
 ---
 
