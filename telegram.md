@@ -7,6 +7,261 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 18:33
+---
+
+## VahidOOnLine — post 240637
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240637_1779030206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت دفاع امارات متحده عربی در بیانیه‌ای اعلام کرد سامانه‌های پدافند هوایی این کشور روز یکشنبه ۲۷ اردیبهشت ماه سه پهپاد را که از سمت مرزهای غربی وارد حریم امارات شده بودند، رهگیری کردند.
+
+بر اساس این بیانیه، دو پهپاد با موفقیت رهگیری و منهدم شدند، اما پهپاد سوم به یک ژنراتور برق در خارج از محدوده داخلی نیروگاه هسته‌ای براکه در منطقه الظفره برخورد کرد.
+
+وزارت دفاع امارات اعلام کرد تحقیقات برای شناسایی منشا این حملات آغاز شده و جزئیات بیشتر پس از تکمیل بررسی‌ها منتشر خواهد شد.
+
+این وزارتخانه همچنین تاکید کرد نیروهای مسلح امارات در آمادگی کامل قرار دارند و با هرگونه اقدام علیه امنیت کشور «قاطعانه» برخورد خواهند کرد؛ اقدامی که به گفته مقام‌های اماراتی با هدف حفظ حاکمیت، امنیت، ثبات و منافع ملی این کشور انجام می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11482
+
+<div align="center">
+  <a href="https://t.me/withyashar/11482" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌐 instagram.com/yashar
+
+🌐 t.me/withyashar
+</div>
+
+## kianmeli1 — post 87452
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87452_1779030208.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴وزیر خارجه امارات متحده عربی پس از حمله پهپادی به نیروگاه هسته‌ای این کشور، تلفنی با مدیرکل آژانس بین‌المللی انرژی اتمی گفت‌وگو کرده است. وزیر خارجه امارات متحده عربی تاکید کرد که ابوظبی حق کامل دارد به چنین «حملات تروریستی» پاسخ دهد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337641
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337641_1779030209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند کوتاه «هنر مقاومت» به تهیه‌کنندگی ایران اینترنشنال و کارگردانی مهران عباسیان در فستیوال فیلم خانه سینمای سوئد موفق به دریافت جایزه بهترین مستند کوتاه و بهترین کارگردانی شد.
+این فیلم داستان دو هنرمند ایرانی را روایت می‌کند که هنر را به زبان اعتراض، امید و مقاومت در برابر محدودیت‌ها تبدیل کرده‌اند.
+https://iranintl.com/202605174127
+</div>
+
+## IranIntlTV — post 337640
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337640_1779030210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید مدرس آنلاین زبان انگلیسی است و دو ماهی می‌شود که نتوانسته یک کلاس برگزار کند.
+</div>
+
+## IranIntlTV — post 337639
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337639_1779030212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از ۱۲ هفته خاموشی اینترنت در ایران، حالا دسترسی به اینترنت برای برخی شهروندان به کالایی گران و لوکس تبدیل شده است.
+
+مهدی بیگی، عضو تحریریه ایران‌اینترنشنال، در برنامه پیوست بازار سیاه «اینترنت پرو» را بررسی کرده است
+@iranintltv
+</div>
+
+## ManotoTV — post 105559
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105559_1779030215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+پراگ | چک؛ گردهمایی ایرانیان ـ گزارشگر شنبه ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105558
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105558_1779030217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع امارات متحده عربی اعلام کرد سه پهپاد از مرزهای غربی وارد این کشور شدند که دو فروند رهگیری شد و پهپاد سوم به یک ژنراتور خارج از محدوده داخلی نیروگاه هسته‌ای براکه در منطقه الظفره برخورد کرد و باعث آتش‌سوزی شد.
+
+وزارت دفاع امارات اعلام کرد تحقیقات برای مشخص شدن منبع این حملات ادامه دارد و نتایج آن بعداً اعلام خواهد شد.
+</div>
+
+## ManotoTV — post 105557
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105557_1779030218.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+«من صدای فاطمه سپهری هستم» ـ گزارشگر
+</div>
+
+## ManotoTV — post 105556
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105556_1779030220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع ایرانیان ساکن بروکسل، یکشنبه ۲۷ اردیبهشت
+</div>
+
+## FarsiVOA — post 217977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی ایالات متحده، سنتکام با انتشار تصاویری از آماده‌سازی هواپیمای سوخت‌رسان کی‌سی-۱۳۵ اعلام کرد که این هواپیماها با سوخت‌رسانی هوایی، برد عملیاتی جنگنده‌ها و دیگر تجهیزات نظامی آمریکا را در سراسر خاورمیانه افزایش می‌دهند.
+
+سنتکام جزئیات بیشتری درباره محل استقرار یا ماموریت این هواپیماها منتشر نکرده است. این اقدام همزمان با بالا بودن تنش‌ها در منطقه انجام می‌شود.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 124801
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124801_1779030222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نت‌بلاکس: قطع اینترنت در ایران به ۷۹ روز رسید
+
+نت‌بلاکس، نهاد بین‌المللی ناظر بر وضعیت اینترنت در جهان، یکشنبه ۱۷ مه (۲۷ اردیبهشت) در تازه‌ترین به‌روزرسانی خود اعلام کرد، ایران در سال ۲۰۲۶ یکی از طولانی‌ترین دوره‌های قطع اینترنت را تجربه کرده است.
+
+بر اساس داده‌های منتشرشده از سوی نت‌بلاکس در شبکه اجتماعی "ایکس" قطع اینترنت در ایران اکنون وارد هفته دوازدهم شده و ۷۹ روز ادامه داشته است.
+
+این نهاد ناظر بر وضعیت دسترسی به اینترنت در جهان اعلام کرده است که این نوع خاموشی گسترده اینترنت شکل مشارکت مدنی در ایران را دگرگون کرده و کنترل جریان اطلاعات، شهروندان را به "تماشاگرانی در کشور خود" تبدیل کرده است.
+
+علاوه بر آن قطع اینترنت به‌شدت بر معیشت، کسب‌وکار و اشتغال مردم تاثیر گذاشته است.
+
+سرکوب اعتراضات مردمی در ایران همواره با خاموشی اینترنت همراه بوده است اما در هیچ برهه‌ای طولانی شدن خاموشی دیجیتال تا این حد گزارش نشده بود.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14336
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14336_1779030223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک‌تایمز: اسرائیل دو پایگاه مخفی در بیابان عراق اداره کرده است
+
+💢روزنامه نیویورک‌تایمز مدعی شد اسرائیل طی بیش از یک سال گذشته به‌صورت متناوب دو پایگاه مخفی در بیابان‌های عراق را اداره کرده است.
+
+بر اساس این گزارش:
+
+▪️ برنامه‌ریزی این پایگاه‌ها از اواخر سال ۲۰۲۴ آغاز شده بود
+▪️ هدف از ایجاد آن‌ها پشتیبانی از عملیات علیه ایران عنوان شده است
+▪️ این پایگاه‌ها به‌صورت محرمانه مورد استفاده قرار می‌گرفتند
+
+نیویورک‌تایمز همچنین مدعی شد:
+
+▪️ آمریکا از ارتش عراق خواسته بود سامانه‌های راداری خود را غیرفعال کند
+▪️ هدف از این اقدام جلوگیری از شناسایی حضور اسرائیل در خاک عراق بوده است
+
+💢تاکنون بغداد، واشینگتن و تل‌آویو واکنش رسمی به این ادعاها نشان نداده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14335
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14335_1779030224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصادف‌ زنجیره‌ای در جاده انار - یزد ۲ کشته و ۱۰ مصدوم برجا گذاشت
+
+💢اورژانس شهرستان انار استان کرمان اعلام کرد که یک تصادف زنجیره‌ای امروز(یکشنبه) در جاده انار کرمان یزد پس از شرایط نامساعد جوی و توفان شن، ۲ کشته و ۱۰ مصدوم برجای گذاشت و یک تریلر هم در آتش سوخت.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## manototv — post 105559
+
+<div align="center">
+  <a href="telegram/content/manototv_105559_1779030227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+پراگ | چک؛ گردهمایی ایرانیان ـ گزارشگر شنبه ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105558
+
+<div align="center">
+  <a href="telegram/content/manototv_105558_1779030229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع امارات متحده عربی اعلام کرد سه پهپاد از مرزهای غربی وارد این کشور شدند که دو فروند رهگیری شد و پهپاد سوم به یک ژنراتور خارج از محدوده داخلی نیروگاه هسته‌ای براکه در منطقه الظفره برخورد کرد و باعث آتش‌سوزی شد.
+
+وزارت دفاع امارات اعلام کرد تحقیقات برای مشخص شدن منبع این حملات ادامه دارد و نتایج آن بعداً اعلام خواهد شد.
+</div>
+
+## manototv — post 105557
+
+<div align="center">
+  <a href="telegram/content/manototv_105557_1779030230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+«من صدای فاطمه سپهری هستم» ـ گزارشگر
+</div>
+
+## manototv — post 105556
+
+<div align="center">
+  <a href="telegram/content/manototv_105556_1779030232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع ایرانیان ساکن بروکسل، یکشنبه ۲۷ اردیبهشت
+</div>
+
+## alonews — post 120626
+
+<div align="center">
+  <a href="telegram/content/alonews_120626_1779030234.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگارای کاخ سفید رو صدا زدن که برن تو محوطه جنوبی کاخ سفید واسه یه "رویداد نامعلوم"
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120625
+
+<div align="center">
+  <a href="telegram/content/alonews_120625_1779030234.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بنرهایی که سپاه تو ساحل تنگه هرمز نصب کرده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 18:23
 ---
 
