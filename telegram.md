@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 19:53
+---
+
+## WithYashar — post 11490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه عبری کان: نتانیاهو و ترامپ، بیش از نیم ساعت با یکدیگر تلفنی گفت‌وگو کردند و در مورد امکان از سرگیری درگیری‌ها در ایران و همچنین سفر ترامپ به چین بحث و تبادل نظر نمودند
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341852
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341852_1779034985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NFL legend Tom Brady cracks a joke about his former Patriots head coach, Bill Belichick, while giving the commencement address at Georgetown University.
+
+"Challenge yourself with ideas that are uncomfortable and people who push you to be your very best, even if one of those people is a cranky old coach who cuts the sleeves off his sweatshirt and screams at you all day."
+</div>
+
+## IranIntlTV — post 337652
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337652_1779034987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود دو ماه و نیم پس از حذف علی خامنه‌ای، یک سخنران بیت فاش کرد که به او و فرماندهان ارشد کشته‌شده اطمینان داده شده بود که حمله‌ای اتفاق نخواهد افتاد. همزمان یک تحلیل‌گر نزدیک به حکومت گفت حداقل دو نفر از فرماندهان تردید داشتند که در جلسه شرکت کنند.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## FarsiVOA — post 217989
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217989_1779034989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوآم بتان، نماینده اسرائیل در یوروویژن ۲۰۲۶، بعد از بازگشت به اسرائیل، در فرودگاه با استقبال هوادارانش روبرو شد. او در مسابقات آواز یوروویژن که شامگاه شنبه، ۲۶ اردیبهشت، برگزار شد، با ترانه‌‌ای که ترکیبی از عبری، فرانسوی و انگلیسی است رتبه دوم را بدست آورد.
+
+دارا، خواننده بلغار مقام اول را کسب کرد. دور بعدی این مسابقات به میزبانی بلغارستان برگزار خواهد شد.
+</div>
+
+## FarsiVOA — post 217988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتانیاهو: اورشلیم را با تمرکز بر زیرساخت‌های عمرانی و میراث تاریخی توسعه می‌دهیم
+
+▪️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، اعلام کرد دولت این کشور در نشست ویژه‌ای در اورشلیم مجموعه‌ای از طرح‌های جدید عمرانی، تاریخی، و فناوری را برای توسعه این شهر تصویب کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/netanyahu-jerusalem-development-program/8150901.html/?nocach=1
+</div>
+
+## FarsiVOA — post 217987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سناتور گراهام: هنوز اهداف بیشتری برای حمله در ایران وجود دارد
+
+▪️لیندزی گراهام، سناتور جمهوری‌خواه ایالت کارولینای جنوبی، روز یکشنبه ۲۷ اردیبهشت خواستار افزایش فشار نظامی آمریکا بر رژیم ایران شد و گفت هنوز اهداف بیشتری برای حمله وجود دارد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/lindsey-graham-nbc-interview-iran-hormuz-strait-status-quo/8150911.html/?nocach=1
+</div>
+
+## DW_Farsi — post 124804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 بارش شدید تگرگ در نقده و بجنورد
+وزش باد شدید، رگبار، رعدوبرق در ۱۴ استان ایران تا روز دوشنبه
+
+بارش بسیار شدید تگرگ در بجنورد و نقده، خیابان‌های این دو شهر را سفیدپوش کرد؛ همزمان سازمان هواشناسی درباره ادامه ناپایداری‌ها، رعدوبرق و احتمال تگرگ در ۱۴ استان هشدار داده است.
+تصاویر منتشرشده از بجنورد و نقده، شدت بالای بارش تگرگ را نشان می‌دهد؛ پدیده‌ای که در پی ناپایداری‌های جوی رخ داده است. سازمان هواشناسی اعلام کرده از عصر یکشنبه تا پایان دوشنبه، در تهران و بخش‌هایی از شمال، غرب، مناطق مرکزی و ارتفاعات، وزش باد شدید، رگبار، رعدوبرق و در مناطق مستعد، بارش تگرگ پیش‌بینی می‌شود.
+@dw_farsi
+</div>
+
+## BBCPersian — post 281307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ و پیامدهایشان چه تاثیری روی وضعیت مسکن شما گذاشته است؟ آیا پس از جنگ مجبور به اسباب‌کشی شده‌اید؟
+بر اساس ارزیابی وزارت کار ایران، جنگ جنگ آمریکا و اسرائیل با ایران موجب بیکاری مستقیم و غیرمستقیم دو میلیون نفر شده است. از دست دادن شغل و کاهش درآمد برای آنها که در خانه‌های اجاره‌ای زندگی می‌کنند بسیار دشوارتر است.
+اگر مستأجرید و در هفته‌های اخیر به دلایل اقتصادی مجبور به اسباب‌کشی شده‌اید، تجربیاتتان را با ما در میان بگذارید. جنگ چه تأثیری روی درآمد شما گذاشت؟ واکنش صاحبخانه‌ چه بود؟ آیا خانه جدیدی اجاره کردید یا به خانه خانواده یا دوستان رفتید؟ این ماجرا چه تاثیری بر روحیه و سلامت روان شما گذاشته است؟
+اگر تجربه و مشاهده‌ای از اجاره‌نشینی دارید، با هشتگ #مسکن برای ما بفرستیدبه:
+آی‌مسج و واتس‌اپ: ۰۰۴۴۷۳۴۲۰۳۲۱۱۳
+پیامگیر تلگرام:t.me/bbcshoma
+
+📷 ایرنا
+عصر ایران
+
+@BBCPersian
+https://bbc.in/43cTEDl
+</div>
+
+## alonews — post 120642
+
+<div align="center">
+  <a href="telegram/content/alonews_120642_1779034992.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وزارت دفاع امارات: ما با ۳ فروند پهپاد که از مرزهای غربی وارد شده بودند، برخورد کرده و با دو فروند از آنها با موفقیت مقابله نمودیم.
+
+
+🔴یکی از پهپادها به یک ژنراتور برق در خارج از محیط داخلی نیروگاه هستهای براکه در منطقه الظفره اصابت کرد.
+
+
+🔴تحقیقات برای تعیین منبع این حملات در جریان است و پس از پایان تحقیقات، تحولات جدید اطلاع‌رسانی خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120641
+
+<div align="center">
+  <a href="telegram/content/alonews_120641_1779034992.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله تو جنوب لبنان با پهپاد FPV به نیروهای اسرائیلی حمله کرد و زدشون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 19:42
 ---
 
