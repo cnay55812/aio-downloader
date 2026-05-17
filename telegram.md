@@ -7,6 +7,45 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 08:12
+---
+
+## pm_afshaa — post 90879
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90879_1778992951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت جدید اتاق جنگ اسرائیل:
+
+⌛
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## BBCPersian — post 281268
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281268_1778992952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻کمیسیونی که از سوی سازمان جهانی بهداشت تشکیل شده، خواستار آن است که تغییرات اقلیمی به‌عنوان یک وضعیت اضطراری بین‌المللی در حوزه سلامت عمومی اعلام شود.
+
+این بالاترین سطح هشدار بهداشتی است.
+
+این هیئت مشورتی مستقل می‌گوید که چنین اقدامی می‌تواند به بسیج یک واکنش بین‌المللی در مقیاسی که لازم است کمک کند.
+
+این هیئت تأکید می‌کند که تغییرات اقلیمی تهدیدی مربوط به آینده نیست، بلکه بحرانی فوری و رو‌به‌رشد است.
+
+این کمیسیون تاکید کرده است که یارانه‌های سوخت‌های فسیلی باید به‌تدریج حذف شوند و از سازمان جهانی بهداشت می‌خواهد که فوراً اقدام کند.
+📷NurPhoto via Getty
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 08:02
 ---
 
