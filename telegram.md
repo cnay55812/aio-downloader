@@ -7,6 +7,151 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 08:52
+---
+
+## VahidOnline — post 75508
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75508_1778995327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ ترجمه ماشین:
+یک شب بزرگ در سیاست. از همه سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 217941
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217941_1778995327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نماینده هند در سازمان ملل اعلام کرد هدف قرار دادن کشتی‌های تجاری، به خطر انداختن خدمه غیرنظامی و ایجاد اختلال در آزادی کشتیرانی در تنگه هرمز غیرقابل قبول است.
+
+پارواتاننی هریش در اجلاس ویژه شورای اجتماعی و اقتصادی سازمان ملل متحد درباره بحران انرژی و کودهای کشاورزی گفته است قوانین بین‌المللی در رابطه با تنگه هرمز باید به‌ طور کامل رعایت شوند.
+
+او تصریح کرد برای مقابله با این بحران، ترکیبی از اقدامات کوتاه‌مدت و ساختاری، در کنار همکاری‌های بین‌المللی، ضروری است.
+
+تنگه هرمز محل عبور ۲۰ درصد از نفت مصرفی و ۳۵ درصد از تجارت کودهای کشاورزی جهان است که از ۹ اسفند به خاطر انسداد تنگه هرمز توسط جمهوری اسلامی و حمله به دهها کشتی، مختل شده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14285
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14285_1778995328.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت رزمی ناو گروه ضربت هواپیمابر آبراهام لینکلن در ۲۵۰ کیلومتری جنوب بندر چابهار.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14284
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14284_1778995328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ توییت اکانت ایران به عبری بعد از انفجار در بیت شمس:
+پیام روشن بود لفاظی نکنید...
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14283
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14283_1778995328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ همچنان ترامپ و پست های ادامه دارش در تروث سوشال:
+
+"ما آمریکا را دوباره بزرگ کردیم."
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281269
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281269_1778995329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت دفاع آمریکا تایید کرده است که ناو هواپیمابر یواس‌اس جرالد فورد که پیش از آغاز جنگ با ایران به خاورمیانه اعزام شده بود، پس از ۳۲۶ روز مأموریت،شنبه به ایالات متحده بازگشته است.
+
+این طولانی‌ترین مأموریت یک گروه رزمی ناو هواپیمابر آمریکا از زمان جنگ ویتنام تاکنون بوده است.
+
+پیت هگست، وزیر دفاع آمریکا، در نورفک در ایالت ویرجینیا برای استقبال از بزرگ‌ترین ناو هواپیمابر جهان حضور داشت.
+
+به گفته ارتش آمریکا، این ناو در جریان ماموریت خود در عملیات‌های آمریکا در منطقه کارائیب مشارکت داشت؛ جایی که نیروهای آمریکایی به قایق‌های مظنون به قاچاق مواد مخدر حمله کرده، نفتکش‌های تحریم‌شده را توقیف و نیکلاس مادورو، رهبر ونزوئلا، را بازداشت کردند.
+
+در طول این ماموریت طولانی، در ۱۲ مارس یک آتش‌سوزی در بخش رخت‌شویی ناوایجاد شد که دو ملوان را زخمی کرد و به حدود ۱۰۰ تخت خواب آسیب جدی رساند. گزارش‌هایی نیز از مشکلات گسترده سیستم فاضلاب و سرویس‌های بهداشتی این ناو در زمان حضور در دریا منتشر شده بود.
+
+📸Anadolu via Getty Images
+https://bbc.in/4eSjrrK
+@BBCPersian
+</div>
+
+## alonews — post 120513
+
+<div align="center">
+  <a href="telegram/content/alonews_120513_1778995329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ به انتشار پست‌هایی درباره سفرش به چین ادامه می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120510
+
+<div align="center">
+  <a href="telegram/content/alonews_120510_1778995330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 دونالد ترامپ در Truth Social:
+
+
+🔴«همان آدم قبلی؛ فقط حالا پرانرژی‌تر!»
+
+
+🔴«رئیس‌جمهور ترامپ جوان‌تر می‌شود»
+
+
+🔴«رئیس‌جمهور ترامپ برعکسِ سنش پیر می‌شود!»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120509
+
+<div align="center">
+  <a href="telegram/content/alonews_120509_1778995330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید یک پوستر به سبک جیمز باند از ترامپ منتشر کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 08:42
 ---
 
