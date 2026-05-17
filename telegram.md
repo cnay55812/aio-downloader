@@ -7,6 +7,88 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 10:22
+---
+
+## VahidOOnLine — post 240576
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240576_1779000761.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم کانادا روز شنبه ۲۶ اردیبهشت علیه جمهوری اسلامی در اتاوا تجمع کردند و شعار «جاوید شاه» سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدرم در اومد رسیدم تلگرام چرا روبیکا خبر نمیزاری یاشار
+</div>
+
+## WithYashar — post 11443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدرم در اومد رسیدم تلگرام چرا روبیکا خبر نمیزاری یاشار
+</div>
+
+## WithYashar — post 11442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون وزیر خارجه روسیه دقایقی پیش از قریب‌الوقوع بودن حمله آمریکا و اسرائیل به ایران خبر داد.
+@withyashar
+</div>
+
+## WithYashar — post 11441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاج: فیفا برای هر ۱۰ شرط ما برای حضور در جام جهانی راه‌حل ارائه داده
+@withyashar
+</div>
+
+## IranIntlTV — post 337573
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337573_1779000763.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم کانادا روز شنبه ۲۶ اردیبهشت علیه جمهوری اسلامی در اتاوا تجمع کردند و شعار «جاوید شاه» سردادند.
+</div>
+
+## alonews — post 120533
+
+<div align="center">
+  <a href="telegram/content/alonews_120533_1779000766.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تایمز: انگلیس برای جنگ آماده می‌شود
+
+
+🔴 یک رسانه انگلیسی از افزایش بودجه دفاعی انگلیس خبر داد و هدف از آن را آماده شدن برای جنگ های آینده اعلام کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120532
+
+<div align="center">
+  <a href="telegram/content/alonews_120532_1779000766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فعالیت غیرمعمول امروز هواپیماهای باری برای سوخت رسانی به جنگنده‌ها در منطقه خاورمیانه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 10:12
 ---
 
