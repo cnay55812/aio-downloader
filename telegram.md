@@ -7,6 +7,24 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 15:12
+---
+
+## Persian_Trend_Official — post 14323
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14323_1779018149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ارتش اسرائیل دستور تخلیه 4 روستا در جنوب لبنان را صادر کرد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 15:09
 ---
 
