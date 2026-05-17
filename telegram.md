@@ -7,6 +7,32 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 08:32
+---
+
+## VahidOOnLine — post 240564
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240564_1778994158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرزبانی استان بوشهر اعلام کرد یکشنبه عملیات انفجار و حریق کنترل‌شده برای امحای مواد و ضایعات بمب در محدوده باشی، بین شهرستان‌های تنگستان و دشتی، انجام می‌شود. این عملیات از ساعت ۸ تا ۱۷ برگزار می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 337559
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337559_1778994159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرزبانی استان بوشهر اعلام کرد یکشنبه عملیات انفجار و حریق کنترل‌شده برای امحای مواد و ضایعات بمب در محدوده باشی، بین شهرستان‌های تنگستان و دشتی، انجام می‌شود. این عملیات از ساعت ۸ تا ۱۷ برگزار می‌شود.
+https://iranintl.com/202605174227
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 08:22
 ---
 
