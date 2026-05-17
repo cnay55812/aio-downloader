@@ -7,6 +7,102 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 21:42
+---
+
+## VahidOOnLine — post 240683
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240683_1779041550.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله حاجی‌صادقی، نماینده مجتبی خامنه‌ای در سپاه پاسداران، گفت: مذاکرات ما تحت اشراف مسئولان و با تایید «رهبری» پیش می‌رود. او با تاکید بر اینکه «اتحاد مقدس از هر چیزی مهم‌تر است»، افزود نباید اجازه داد این اتحاد آسیب ببیند.
+
+حاجی‌صادقی همچنین گفت: «رهبری شجاع، بصیر، حکیم، مسلط و با قدرت فرماندهی داریم که مردم را به زیبایی رهبری می‌کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11510
+
+
+
+
+## IranIntlTV — post 337673
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337673_1779041550.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «در شرایط فعلی، کسی در تهران به‌دنبال صلح نیست و ظاهراً صلح و امتیاز دادن و گرفتن را نوعی ضعف و ضدارزش می‌دانند.»
+
+او افزود: «برنامه هسته‌ای که به‌خاطر آن دو بار کشور وارد جنگ شد، خسارت‌های سنگینی به ایران وارد کرده و بخش بزرگی از تاسیسات و توان مرتبط با آن نابود شده است. با این حال، دوباره بحث‌ها به همان نقطه اول برگشته؛ انگار دوباره به نقطه صفر و مرحله‌ای سخت بازگشته‌ایم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337672
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337672_1779041552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله حاجی‌صادقی، نماینده مجتبی خامنه‌ای در سپاه پاسداران، گفت: مذاکرات ما تحت اشراف مسئولان و با تایید «رهبری» پیش می‌رود. او با تاکید بر اینکه «اتحاد مقدس از هر چیزی مهم‌تر است»، افزود نباید اجازه داد این اتحاد آسیب ببیند.
+
+حاجی‌صادقی همچنین گفت: «رهبری شجاع، بصیر، حکیم، مسلط و با قدرت فرماندهی داریم که مردم را به زیبایی رهبری می‌کند.»
+https://iranintl.com/202605173538
+</div>
+
+## IranIntlTV — post 337671
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337671" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | یکشنبه ۲۷ اردیبهشت
+@iranintlTV
+</div>
+
+## IranianMinds — post 20288
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20288_1779041552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ (فقط ۲۰۰ هزار تومن)🥺
+
+
+🌱 قیمت اقتصادی + پشتیبانی حرفه‌ای
+
+🚀 سریع و پایدار، بدون قطعی
+🦋پشتیبانی واقعی، همیشه در دسترس
+
+ربات ما🌴
+📩 @dayaconfigbot
+
+کانال ما🌳
+📩 @dayavpn
+</div>
+
+## Hranews — post 112998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از بلاتکلیفی و اخراج کارگران در ۲ واحد مختلف
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – ۱۳۸ تن از #کارگران شرکت ملی مس از زیر مجموعه‌های هلدینگ ایمیدرو، توسط کارفرما از محل کار خود اخراج شدند. همچنین، جمعی از کارگران شرکتی فرودگاه «بین‌المللی امام خمینی» از توقف فعالیت برخی از شرکت‌های پیمانکاری فرودگاه و بیکاری کارگران این واحدها خبر دادند.
+
+ادامه مطلب
+
+↘️ @hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 21:32
 ---
 
