@@ -1,6 +1,8 @@
 name: telegram-fetcher
 
 on:
+  schedule:
+    - cron: "*/30 * * * *"
   workflow_dispatch:
 
 permissions:
