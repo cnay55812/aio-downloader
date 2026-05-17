@@ -7,6 +7,175 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 19:22
+---
+
+## VahidOOnLine — post 240647
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240647_1779033165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوگوش، خواننده سرشناس ایرانی، «نشان افتخار جزیره آلیس» را دریافت کرد؛ «این نشان به افرادی اهدا می‌شود که در جامعه آمریکا تأثیرگذار بوده‌اند و در عین حال ریشه‌ها و هویت فرهنگی خود را حفظ کرده‌اند.»
+
+گوگوش با انتشار تصویری از مراسم اهدای این نشان در صفحه اینستاگرام خود نوشت: «این نشان را با عشق و احترام به مردم ایران تقدیم می‌کنم؛ به مردمی که سال‌ها با رنج، صبوری، امید و سربلندی زندگی کرده‌اند و با وجود همه سختی‌ها، همچنان ایستاده‌اند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11489
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلاه شیر و خورشیدمو الان باد برد تو آب های خلیج فارس… 🥹❤️‍🩹
+</div>
+
+## pm_afshaa — post 90907
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90907_1779033165.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از یک مقام اسرائیلی:
+ترامپ و نتانیاهو در تماسی تلفنی درباره پرونده ایران گفتگو کردن.
+
+کانال 12 اسرائیل:
+در سایه آمادگی برای از سرگیری درگیری‌ها در ایران این تماس انجام شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337648
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337648_1779033166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندسی گراهام، سناتور آمریکایی، در گفت‌وگو با ان‌بی‌سی نیوز خواستار اقدام نظامی بیشتر آمریکا علیه جمهوری اسلامی شد.
+
+جزییات بیشتر با مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6048
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6048_1779033167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارة الدفاع |MOD UAE ✓ @modgovae Sun, 17 May 2026 13:54:54 UTC تعاملت الدفاعات الجوية الإماراتية مع 3 طائرات مسيّرة. أعلنت وزارة الدفاع أنه في 17 مايو 2026 تعاملت الدفاعات الجوية الإماراتية مع 3 طائرات مسيّرة دخلت الدولة من جهة الحدود الغربية، حيث تم التعامل…
+</div>
+
+## Shin_Persian — post 6047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارة الدفاع |MOD UAE ✓ @modgovae
+Sun, 17 May 2026 13:54:54 UTC
+
+تعاملت الدفاعات الجوية الإماراتية مع 3 طائرات مسيّرة.
+
+أعلنت وزارة الدفاع أنه في 17 مايو 2026 تعاملت الدفاعات الجوية الإماراتية مع 3 طائرات مسيّرة دخلت الدولة من جهة الحدود الغربية، حيث تم التعامل بنجاح مع اثنتين فيما أصابت الثالثة مولد كهربائي خارج المحيط الداخلي لمحطة براكة للطاقة النووية في منطقة الظفرة.
+
+وأضافت الوزارة بأن التحقيقات جارية لمعرفة مصدر الاعتداءات، وسيتم الكشف عن المستجدات بعد انتهاء التحقيقات.
+
+وتؤكد وزارة الدفاع أنها على أهبة الاستعداد والجاهزية للتعامل مع أي تهديدات، والتصدي بحزم لكل ما يستهدف زعزعة أمن الدولة، بما يضمن صون سيادتها وأمنها واستقرارها، ويحمي مصالحها ومقدراتها الوطنية.
+
+#وزارة_الدفاع
+#وزارة_الدفاع_الإماراتية
+#MOD
+#UAEMinistryOfDefence
+
+English
+
+UAE Air Defenses intercepted 3 drones.
+
+The Ministry of Defense announced that on May 17, 2026, UAE air defenses intercepted 3 drones that entered the country from the western border. Two were successfully engaged, while the third struck an electrical generator outside the internal perimeter of the Barakah Nuclear Energy Plant in the Al Dhafra region.
+
+The Ministry added that investigations are underway to determine the source of the attacks, and updates will be disclosed upon the conclusion of the investigations.
+
+The Ministry of Defense affirms that it is at the highest level of readiness and preparedness to deal with any threats and to resolutely confront anything aimed at destabilizing the security of the state, ensuring the preservation of its sovereignty, security, and stability, and protecting its national interests and assets.
+
+#Ministry_of_Defense
+#UAE_Ministry_of_Defense
+#MOD
+#UAEMinistryOfDefence
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 281305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شبکه خبر ایران به نقل از مقام نظامی: حمله به نزدیکی تاسیسات هسته‌ای امارات، تله دشمن است
+
+🔻شبکه خبر صداوسیما از قول یک مقام آگاه نظامی که نامش را نبرد گفت حمله به نزدیکی تاسیسات هسته‌ای امارات «توطئه» و «تله دشمن» است.
+
+بنابر این گزارش، این مقام نظامی گفت آمریکا و اسرائیل تلاش می‌کنند با عملیات‌ «غیرموجه علیه کشورهای منطقه و نسبت دادن آن به جمهوری اسلامی ایران خود را از باتلاق خودساخته برهانند و از بن بستی که قرار گرفته‌اند خارج کنند.»
+
+او «این توطئه صهیونیستی» را محکوم کرد و همه طرف‌ها از «افتادن در تله دشمن و هر گونه رفتار یا گفتارو نسنجیده برحذر» داشت.
+
+https://bbc.in/4tFeZjK
+@BBCPersian
+</div>
+
+## Hranews — post 112996
+
+<div align="center">
+  <img src="telegram/content/Hranews_112996_1779033168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهار صحرائیان، وکیل دادگستری به زندان عادل آباد شیراز منتقل شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – بهار صحرائیان، وکیل دادگستری به زندان عادل آباد شیراز منتقل شد. وی صبح روز جاری در دادسرای شیراز مورد تفهیم اتهام قرار گرفته بود.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، بهار صحرائیان به زندان منتقل شد.
+
+بر اساس اطلاعات دریافتی هرانا، خانم صحرائیان به زندان عادل آباد شیراز منتقل شده است. این وکیل دادگستری، امروز یکشنبه ۲۷ اردیبهشت ماه، در دادسرای شیراز، از بابت اتهامات «اجتماع و تبانی به قصد اقدام علیه امنیت ملی، فعالیت تبلیغی علیه نظام و نشر اکاذیب» مورد تفهیم اتهام قرار گرفته بود.
+
+ادامه مطلب
+
+#بهار_صحرائیان
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 120634
+
+<div align="center">
+  <a href="telegram/content/alonews_120634_1779033168.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفت‌وگوی تلفنی وزرای امور خارجه ایران و قطر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120633
+
+<div align="center">
+  <a href="telegram/content/alonews_120633_1779033168.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس به نقل از یک مقام اسرائیلی: ترامپ و نتانیاهو در تماس تلفنی پرونده ایران را بررسی کردند‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 19:13
 ---
 
