@@ -7,6 +7,224 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 17:22
+---
+
+## VahidOOnLine — post 240629
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240629_1779025960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهوری ایران، روز یکشنبه در دیدار با محسن نقوی، وزیر کشور پاکستان، از نقش اسلام‌آباد در تثبیت آتش‌بس قدردانی و ابراز امیدواری کرد تلاش‌های پاکستان به تقویت صلح و ثبات در منطقه کمک کند.
+رئیس‌جمهوری ایران در این دیدار تاکید کرد «ایران خواهان روابطی صمیمانه و پایدار با کشورهای اسلامی منطقه است» و افزود اتحاد کشورهای اسلامی می‌تواند زمینه «مداخله قدرت‌های فرامنطقه‌ای» را کاهش دهد.
+به گزارش خبرگزاری ایرنا، محسن نقوی، وزیر کشور پاکستان، نیز با اشاره به روابط تهران و اسلام‌آباد گفت ایران و پاکستان اکنون بیش از گذشته به یکدیگر نزدیک شده‌اند و روابط برادرانه دو کشور باید بیش از پیش گسترش یابد.
+این دیدار در شرایطی انجام شده که پاکستان در هفته‌های اخیر در روند تلاش‌های دیپلماتیک و میانجی‌گری منطقه‌ای برای کاهش تنش‌ها و تثبیت آتش‌بس نقش فعالی ایفا کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+END OF AN ERA: Ronda Rousey's rousing return to UFC ended quickly, after the legendary fighter took down opponent Gina Carano in just 17 seconds in front of a packed, stunned crowd — wrapping up her historic MMA career.
+
+Rousey claims she's done fighting for good and is embracing being a mom to her two kids, and that she's ready to expand her family again.
+</div>
+
+## pm_afshaa — post 90902
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90902_1779025960.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣تجربه‌ای متفاوت از اینترنت پرسرعت 
+🔺 سرعت بالا و پایدار 
+🔺 مناسب برای استفاده روزمره و حرفه‌ای 
+🔺 پشتیبانی سریع و همیشگی 
+🔺 ساب‌لینک برای مدیریت مصرف 
+⏱ اعتبار یک‌ماهه 
+🧑‍💻 کاربر نامحدود 
+🚀 با زرین بدون محدودیت وصل باش 
+🤖 بات هوشمند 
+💎 رضایت مشتری 
+👤 پشتیبانی 
+📣…
+</div>
+
+## pm_afshaa — post 90901
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90901_1779025961.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣تجربه‌ای متفاوت از اینترنت پرسرعت
+
+
+🔺 سرعت بالا و پایدار
+
+🔺 مناسب برای استفاده روزمره و حرفه‌ای
+
+🔺 پشتیبانی سریع و همیشگی
+
+🔺 ساب‌لینک برای مدیریت مصرف
+
+
+⏱ اعتبار یک‌ماهه 
+🧑‍💻 کاربر نامحدود
+
+
+🚀 با زرین بدون محدودیت وصل باش
+
+
+🤖 بات هوشمند
+
+💎 رضایت مشتری
+
+👤 پشتیبانی
+
+📣 کانال
+
+
+🫥 زرین وی پی ان
+🎤Zarin VPN
+</div>
+
+## pm_afshaa — post 90900
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90900_1779025961.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس: کوبا از سال 2023 پیش از 300 پهپاد نظامی به دست آورده که خیلیشون از روسیه و ایران هستن. الانم دارن بحث میکنن که شاید بخوان از اینا علیه پایگاه دریایی آمریکا در خلیج گوانتانامو و کشتی‌های نظامی آمریکا استفاده کنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337626
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337626_1779025962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اردن حمله پهپادی به ابوظبی را که به وقوع آتش‌سوزی در خارج از محدوده داخلی نیروگاه هسته‌ای براکه منجر شد، به‌شدت محکوم کرد و آن را نقض آشکار حاکمیت امارات متحده عربی، تهدیدی علیه امنیت و ثبات این کشور و نیز نقض صریح قوانین بین‌المللی و منشور سازمان ملل متحد دانست.
+
+وزارت خارجه اردن در بیانیه‌ای با اعلام همبستگی کامل با امارات متحده عربی تاکید کرد که اَمان در کنار ابوظبی و تمامی اقداماتی که برای حفظ امنیت، حاکمیت و سلامت شهروندان و ساکنان خود انجام دهد، خواهد ایستاد.
+https://iranintl.com/202605171312
+</div>
+
+## BBCPersian — post 281300
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281300_1779025962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻بهار صحرائیان، وکیل دادگستری و فعال حقوق بشر، صبح روز ۲۶ اردیبهشت هنگامی که برای دفاع از معترضان بازداشت‌شده در دادگاه انقلاب شیراز حاضر شده بود، بازداشت شده است.
+
+یک منبع مطلع به بی‌بی‌سی گفت که خانم صحرائیان به زندان عادل‌آباد شیراز منتقل شده است.
+
+بهار صحرائیان که عضو کانون وکلای استان فارس است، آبان ۱۴۰۱ هم بازداشت و مدتی در زندان بود که با حکم عفو آزاد شد.
+
+این منبع مطلع گفت خانم صحرائیان پس از آزادی چند بار به اداره اطلاعات فراخوانده شد: «این وکیل دادگستری در حین انجام وظیفه حرفه‌ای و در فضای دادگاه صورت گرفته است سپس به دفتر کارش در شیراز برده شده و دفتر مورد تفتیش قرار گرفته و بعد از آن به بازداشتگاه منتقل شده است.»
+
+بر اساس این گزارش، خانم صحرائیان صبح امروز، ۲۷ اردیبهشت به دادسرا منتقل شده و اتهامات «اجتماع و تبانی به قصد اقدام علیه امنیت ملی»، «فعالیت تبلیغی علیه نظام اسلامی» و «نشر اکاذیب» به او تفهیم شده است.
+
+📷Handout
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389618
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم آخوندها اگر توانش را داشتند، اکسیژن را روی مردم ایران می بستند و به نیروهای خودی «اکسیژن پرو» می‌دادند.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389617
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏به عنوان یه روانشناس می‌تونم بگم که، آدم‌ها معمولاً خشم‌شون رو سر کسانی که واقعاً مستحق اون هستن خالی نمی‌کنن، بلکه روی کسانی خالی می‌کنن که مطمئنن دوست‌شون دارن و در نهایت اون‌ها رو می‌بخشن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از جمله [بذار تکلیف جنگ معلوم شه، بعد] حامله ام.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قبلا کس گاو برای خودش شخصیتی داشت، الان شده چند گیگ اینترنت و چند دقیقه ریلز دیدن تو اینستا
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120613
+
+<div align="center">
+  <a href="telegram/content/alonews_120613_1779025963.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : تو این جنگ معلوم شد ایران اصلاً براش مهم نیست چیو بزنه
+- نه اماکن مقدس اسلام براش مهمه، نه مسیحیت، نه حتی مکان‌های مقدس یهودیا. به اینجا موشک شلیک کرد و هم اماکن مقدس رو به خطر انداخت
+- هم مردمو، برای همین الان داریم بودجه ویژه می‌ذاریم برای محافظت و تقویت دیوار ندبه و زیرساخت‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120612
+
+<div align="center">
+  <a href="telegram/content/alonews_120612_1779025965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : قدرت اسرائیل الان توی میدان جنگ داره معلوم میشه
+- هم به خاطر نسل جنگجوهای ما، هم مردمی که جلوی همه این چالش‌ها محکم ایستادن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120611
+
+<div align="center">
+  <a href="telegram/content/alonews_120611_1779025967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حاجی‌بابایی، نایب‌رییس مجلس:
+اگه تاسیسات نفت ما رو بزنن، نفت دوست و دشمن در منطقه رو میزنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 17:12
 ---
 
