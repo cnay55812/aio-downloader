@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 21:23
+---
+
+## VahidOOnLine — post 240675
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240675_1779040391.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافتی نشان می‌دهد روز شنبه ۲۶ اردیبهشت، جمعی از ایرانیان ساکن شهر رجاینا در ساسکاچوانِ کانادا، همراه با اجرای پرفورمنسی علیه اعدام‌های جمهوری اسلامی و قطعی اینترنت در ایران، تجمع اعتراضی برگزار کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240674
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240674_1779040393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، عصر یکشنبه در گفتگویی تلفنی با اکسیوس بار دیگر به ایران هشدار داد و گفت: «زمان برای ایران در حال گذر است.» او افزود اگر جمهوری اسلامی پیشنهاد بهتری برای توافق ارائه نکند، «بسیار شدیدتر هدف حمله قرار خواهد گرفت.»
+به گزارش آکسیوس، ترامپ این اظهارات را در شرایطی مطرح کرده که مقام‌های آمریکایی می‌گویند او همچنان خواهان دستیابی به توافقی برای پایان دادن به جنگ است، اما مخالفت ایران با بخش قابل توجهی از خواسته‌های واشنگتن و خودداری از ارائه امتیازهای معنادار در برنامه هسته‌ای، گزینه نظامی را بار دیگر روی میز قرار داده است.
+دو مقام آمریکایی  به اکسیوس گفته‌اند ترامپ قرار است برای بررسی گزینه‌های نظامی علیه ایران، روز سه‌شنبه با تیم ارشد امنیت ملی خود نشستی در اتاق وضعیت کاخ سفید برگزار کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس به نقل از دو مقام آمریکایی:
+انتظار میره ترامپ روز سه‌شنبه جلسه‌ای در اتاق وضعیت با تیم ارشد امنیت ملی خود برگزار کنه تا گزینه‌های اقدام نظامی علیه ایران رو بررسی کنه.
+@withyashar
+</div>
+
+## DEJradio — post 4682
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4682_1779040393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 مستند؛
+پرویز فتاح، تکنوکرات سپاهی و مطلوب علی خامنه‌ای
+
+#موشعلی #IRGCterrorists
+@DEJradio
+</div>
+
+## IranIntlTV — post 337667
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337667_1779040395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافتی نشان می‌دهد روز شنبه ۲۶ اردیبهشت، جمعی از ایرانیان ساکن شهر رجاینا در ساسکاچوانِ کانادا، همراه با اجرای پرفورمنسی علیه اعدام‌های جمهوری اسلامی و قطعی اینترنت در ایران، تجمع اعتراضی برگزار کردند.
+</div>
+
+## IranIntlTV — post 337666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطعی اینترنت در ایران به روز هفتاد و نهم رسیده است و دشواری‌های فراوانی برای میلیون‌ها ایرانی ایجاد کرده. گزارش‌های مختلفی از این مشکلات برای گروه‌های مختلف، از جمله افراد معلول منتشر شده است.
+
+گفت‌وگو با رقیه رضایی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 337665
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337665_1779040396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۳ اسرائیل گزارش داد این کشور در آماده‌باش کامل قرار دارد. بنابر طرح‌های تدوین‌شده، اهداف حملات احتمالی شامل زیرساخت‌های حکومتی، تاسیسات انرژی، نیروگاه‌ها و همچنین تلاش برای هدف قرار دادن مقام‌های ارشد ایران خواهد بود.
+
+گفت‌وگو با فرزین ندیمی، پژوهشگر امور دفاعی و امنیتی
+@iranintltv
+</div>
+
+## Shin_Persian — post 6050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📦 mhrv-rs v1.9.29 released
+
+• Fix the v1.9.28 Code.gs JSON parse regression (PR #1265, #1245, #1253, #1261)
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.29 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1929
+</div>
+
+## Persian_Trend_Official — post 14347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: زمان برای جمهوری اسلامی رو به پایان است.
+ 
+دونالد ترامپ، رئیس‌جمهور اِیالات متحده، شامگاه یکشنبه، ۲۷ اردیبهشت‌ماه با انتشار پیامی در شبکه‌ی اجتماعی خود از این خبر داد که ساعت برای جمهوری اسلامی در حال تیک‌تاک است. رئیس‌جمهور آمریکا به رژیم توصیه کرد بهتر است سریع‌تر حرکت کنند، در غیر این صورت چیزی برای آنها باقی نخواهد ماند.
+دونالد ترامپ این پیام را دقایقی پس از آن منتشر کرد که رسانه‌های اسرائیلی و آمریکایی از گفت‌وگوی او با بنیامین نتانیاهو، نخست‌وزیر اسرائیل خبر دادند.
+تایمز اسرائیل شامگاه یکشنبه گزارش داد بنیامین نتانیاهو، عصر روز یکشنبه و دقایقی پیش از برگزاری یک نشست محدود امنیتی در شامگاه یکشنبه، با دونالد ترامپ، درباره جنگ علیه جمهوری اسلامی گفتگو کرده است.
+ 
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 120658
+
+<div align="center">
+  <a href="telegram/content/alonews_120658_1779040398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کان نیوز: هرگونه حمله آینده علیه ایران که به تأیید ترامپ برسد، به‌صورت مشترک توسط نیروهای آمریکا و اسرائیل انجام خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120657
+
+<div align="center">
+  <a href="telegram/content/alonews_120657_1779040398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای کانال ۱۵عبری به نقل از مقامات اسرائیلی: پهپادهایی که امروز نیروگاه هسته‌ای ابوظبی را هدف قرار داده بودند، به سوی تأسیسات برق در رآکتور هدایت می‌شدند و هدف، ارسال یک پیام بوده است.
+
+
+🔴 در امارات، هنوز مشخص نشده است که چه کسی این پهپادها را پرتاب کرده است: ایرانی‌ها یا حوثی‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120656
+
+<div align="center">
+  <a href="telegram/content/alonews_120656_1779040399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه کوبا برونو رودریگز پاریا: کوبا کشوری صلح‌طلب است، اما اگر به طور نظامی مورد حمله قرار گیرد، حق دفاع مشروع خود را تا آخرین پیامدها با حمایت گسترده مردمش اعمال خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 21:12
 ---
 
