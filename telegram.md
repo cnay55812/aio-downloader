@@ -7,6 +7,195 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 20:52
+---
+
+## WithYashar — post 11501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به کانال 12 اسرائیل:
+ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم؛ اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن.
+@withyashar
+</div>
+
+## WithYashar — post 11500
+
+
+
+
+## mwarmonitor — post 9217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ به کانال ۱۳ اسرائیل:
+اگر ایران یک پیشنهاد خوب ارسال نکند، به آن‌ها حمله خواهیم کرد؛ به شکلی که تا حالا انجام نداده‌ایم.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341853
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341853_1779038561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Deputies wrangle and “arrest” an alligator after it wandered into a residential neighborhood near a school bus stop in Paisley, Florida.
+
+Wild footage shows deputies corralling the gator before it was safely captured and turned over to the Florida Fish and Wildlife Conservation Commission.
+</div>
+
+## pm_afshaa — post 90913
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90913_1779038562.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از دو مقام آمریکایی:
+انتظار میره ترامپ روز سه‌شنبه جلسه‌ای در اتاق وضعیت با تیم ارشد امنیت ملی خود برگزار کنه تا گزینه‌های اقدام نظامی علیه ایران رو بررسی کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90912
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90912_1779038562.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به کانال 12 اسرائیل:
+ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم؛ اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Dirty_Kids — post 389633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تا حالا رفتی جنازه دخترت رو تحویل بگیری
+بهت بگن شیرینی بگیر ؟
+بعد تو بگی برای جنازش؟
+اونم بگه نه برای بکارتش
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلگرام تو این سیزده سال، به اندازه‌ی یک روز پیام‌رسان‌های داخلی قطعی و اختلال نداشته.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 112997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصدومیت ۱۵ کارگر، آتش‌نشان و نیروی امدادی در سایه فقدان ایمنی کار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – در سایه فقدان ایمنی محیط و شرایط نامناسب کار، ۱۵ #کارگر از جمله ۱۳ آتش‌نشان و نیروی امدادی در شهرستان‌های مراغه و مریوان طی حوادثی حین انجام کار مصدوم شدند.
+
+ادامه مطلب
+
+↘️ @hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 120653
+
+<div align="center">
+  <a href="telegram/content/alonews_120653_1779038563.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رادیو ارتش اسرائیل: در سایه شروع درگیری ها در ایران فرماندهی پشتیبانی اعلام کرد دستورالعمل‌ها عوض نشده، فعلا تا سه‌شنبه همون‌هایی که هستن معتبرن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120652
+
+<div align="center">
+  <a href="telegram/content/alonews_120652_1779038563.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انتظار می‌رود ترامپ روز سه‌شنبه جلسه‌ای در اتاق وضعیت با تیم ارشد امنیت ملی خود برگزار کند تا گزینه‌های اقدام نظامی علیه ایران را بررسی کند، به گزارش Axios و به نقل از دو مقام آمریکایی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120651
+
+<div align="center">
+  <a href="telegram/content/alonews_120651_1779038563.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ادامه رفت و آمد هواپیماهای ترابری ارتش آمریکا به خاورمیانه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120650
+
+<div align="center">
+  <a href="telegram/content/alonews_120650_1779038563.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفت برنت بعدِ پست جدید ترامپ؛ از ۱۰۵$ رسید به ۱۰۹$
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120649
+
+<div align="center">
+  <a href="telegram/content/alonews_120649_1779038564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: «منتظر یک پیشنهاد دیگر از سوی ایران هستیم، پیش از آن‌که با شدتی بی‌سابقه به آن حمله کنیم.»
+
+
+🔴ایران باید از من بترسد و مراقب باشد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120648
+
+<div align="center">
+  <a href="telegram/content/alonews_120648_1779038564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان ملل: ما خواهان توافق جامع بین ایران و آمریکا هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 20:42
 ---
 
