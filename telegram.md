@@ -7,6 +7,259 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 20:21
+---
+
+## VahidOOnLine — post 240664
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240664_1779036692.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دفتر نخست‌وزیر قطر اعلام کرد شیخ محمد بن عبدالرحمن آل‌ثانی، نخست‌وزیر و وزیر امور خارجه این کشور، روز یکشنبه در تماس تلفنی با شهباز شریف، نخست‌وزیر پاکستان، درباره روابط دوجانبه، تحولات منطقه و تلاش‌های میانجی‌گرانه اسلام‌آباد گفتگو کرده است.
+دو طرف در این تماس همچنین آخرین تحولات منطقه و تلاش‌های پاکستان برای کاهش تنش‌ها با هدف تقویت امنیت و ثبات منطقه را بررسی کردند.
+شیخ محمد بن عبدالرحمن در این گفتگو از تلاش‌های پاکستان و سایر طرف‌های دخیل در روند میانجی‌گری که به برقراری آتش‌بس میان ایالات متحده و جمهوری اسلامی ایران منجر شد، قدردانی کرد.
+بر اساس بیانیه دفتر نخست‌وزیر قطر، شیخ محمد بن عبدالرحمن آل‌ثانی همچنین بر حمایت کامل دوحه از تلاش‌های میانجی‌گرانه پاکستان برای پایان دادن به بحران از راه‌های مسالمت‌آمیز تاکید کرد و گفت همه طرف‌ها باید با این تلاش‌ها همراه شوند تا زمینه برای پیشرفت مذاکرات و دستیابی به توافقی جامع و صلحی پایدار در منطقه فراهم شود.
+وزیر امورخارجه قطر پیش از این تماس، با عباس عراقچی، وزیر امور خارجه ایران گفتگو کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240663
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240663_1779036693.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله بن زاید آل‌نهیان، وزیر خارجه امارات متحده عربی پس از حمله پهپادی به نیروگاه هسته‌ای این کشور، تلفنی با رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی گفت‌وگو کرده است.
+
+به گزارش خبرگزاری دولتی امارات متحده عربی، وزیر خارجه این کشور تاکید کرد که ابوظبی حق کامل دارد به چنین «حملات تروریستی» پاسخ دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11495
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11495_1779036694.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 11494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتحاد باید شکل بگیره ! حتی بچه هیئتی ! تغییر رژیم شکل میگیره ولی تغییر عقیده کار یک شبه نیست و باید هر دو سمت شل کنند ! من خودم کافرم ولی تیم باید تکمیل باشه ! آس پیک شخص شاهزاده رضا پهلوی تنها هستش ! ترامپم مارو میره قاهره شک نکنید !
+</div>
+
+## mwarmonitor — post 9214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ:
+در مورد ایران، زمان در حال تمام شدن است و آن‌ها باید خیلی سریع اقدام کنند؛ در غیر این صورت چیزی از آن‌ها باقی نخواهد ماند. زمان حیاتی است!
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 90911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 13 اسرائیل:ترامپ چندتا رویداد که قرار بود تو اونا شرکت کنه رو لغو کرده و الان جلسه‌ درباره ایران برگزار کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: برای ایران، زمان در حال تیک‌تاک است و بهتره سریع حرکت کنند، وگرنه چیزی از آنها باقی نخواهد ماند. زمان مهم است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90909
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90909_1779036694.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: از شروع محاصره دریایی ایران، 81 کشتی تجاری رو منحرف کردیم و 4 تا رو از کار انداختیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87453
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87453_1779036695.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: زمان برای ایران در حال اتمام است
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6049
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6049_1779036695.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 17 May 2026 16:45:32 UTC
+
+President Trump @POTUS:
+"For Iran, the Clock is Ticking, and they better get moving, FAST, or there won’t be anything left of them. TIME IS OF THE ESSENCE! President DJT"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«برای ایران، ساعت در حال حرکت است و بهتر است آن‌ها به سرعت وارد عمل شوند، سریع، وگرنه چیزی از آن‌ها باقی نخواهد ماند. زمان حیاتی است! رئیس‌جمهور دی‌جی‌تی»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بغداد در نقطه عطف سیاسی؛ حذف گروه‌های نزدیک به جمهوری اسلامی از کابینه و تشدید اختلافات شیعە
+</div>
+
+## FarsiVOA — post 217991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با حسن هاشمیان از صدای آمریکا به همزمانی آغاز به‌کار دولت جدید عراق با تشدید فشار نظامی، اقتصادی، و قضایی آمریکا بر گروه‌های وابسته به جمهوری اسلامی پرداختیم و بررسی کردیم این تحولات چه پیامدهایی برای آینده نفوذ رژیم ایران و موازنه امنیتی در عراق خواهد داشت.
+</div>
+
+## FarsiVOA — post 217990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان‌های حقوق بشری گزارش داده‌اند که وکلای تسخیری قوه قضائیه در سرعت بخشیدن به صدور احکام اعدام برای معترضان، به رژیم ایران کمک می‌کنند.
+</div>
+
+## DW_Farsi — post 124806
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 هشدار وکلای حقوق بشر؛ برخی وکلای تسخیری همدست نهادهای امنیتی هستند
+
+سازمان حقوق بشر ایران هشدار داده است که دستگاه قضایی جمهوری اسلامی به‌طور فعال از وکلای تسخیری در جریان پرونده‌های معترضان بازداشت‌شده استفاده می‌کند و این موضوع می‌تواند به تسریع و تسهیل اجرای احکام اعدام منجر شود.
+
+این سازمان می‌گوید در نامه‌ای از سوی جمعی از وکلای حقوق بشری داخل ایران، برخی وکلای تسخیری "همدست" نهادهای امنیتی در محاکمات نمایشی معرفی شده‌اند زیرا به جای دفاع موثر از موکلان، با دستگاه‌های امنیتی همکاری می‌کنند.
+
+آنها در نامه‌ای با عنوان "وکلای امنیتی؛ شریک دزد و رفیق قافله" به نقش وکلای تسخیری در پرونده‌های امنیتی پرداخته‌اند.
+
+در این نامه تاکید شده است محرومیت از وکیل مستقل می‌تواند به‌طور عامدانه زمینه‌ساز صدور و اجرای احکام اعدام علیه متهمان شود.
+
+بر اساس این گزارش، مستنداتی وجود دارد که نشان می‌دهد برخی وکلای تسخیری بلافاصله پس از صدور حکم، درخواست تجدیدنظر را به‌صورت رسمی ثبت می‌کنند و بدین ترتیب متهمان را از مهلت قانونی ۲۰ روزه برای تجدیدنظرخواهی محروم می‌سازند.
+
+سازمان حقوق بشر ایران تاکید کرده است این رویه با ایجاد مانع در دسترسی به وکلای مستقل و ثبت زودهنگام درخواست‌ها، مسیر اجرای احکام اعدام را هموار می‌کند و می‌تواند "مصداق نقض جدی اصول دادرسی عادلانه و اعدام‌های خودسرانه در حقوق بین‌الملل" باشد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14344
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14344_1779036696.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای ساعدی نیا
+قلب میلیون ها ایرانی همراه شماست.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک روز پس از به نمایش درآمدن فیلم «تمرین‌هایی برای یک انقلاب»، ساخته پگاه آهنگرانی در هفتاد و نهمین جشنواره فیلم کن، عوامل تولید و ساخت این فیلم مقابل دوربین رسانه‌ها قرار گرفتند.
+
+پس از نمایش دیروز که با استقبال تماشاچیان همراه بود،‌ خانم آهنگرانی اثر خود را به مادرانی تقدیم کرد که فرزندانشان را در راه مبارزه برای آزادی از دست داده‌اند.
+
+کاوه فرنام و آدریا مونس تهیه کنندگان فیلم «تمرین‌هایی برای یک انقلاب» هستند و تدوین آن با آرش آشتیانی بوده است.
+
+پگاه آهنگرانی که خود راوی این فیلم است می‌گوید که از میان پنج پرتره از خویشاوندان و استادانش و پنج شکل از مقاومت، در این فیلم داستان زندگی خودش را روایت کرده است.
+
+به گفته خانم آهنگرانی او با استفاده از آرشیوهای شخصی، ویدئوهای خانگی، تصاویر اعتراضات خیابانی، روزنامه‌ها و صداهای ضبط‌ شده، بیش از ۴۰ سال از تاریخ ایران را بازخوانی ‌کرده است.
+
+📷Corbis via Getty Images/ AFP via Getty Images/ Getty Images/ EPA/ BBC Images
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏Lesson :
+
+جایی که بهت میگن «اگه دوست داری بیای، بیا»، نرو.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتیکه‌ی توده‌ای پلشت فکر کرده به جای «تخم» بگه «بیضه» خیلی مودب و با اخلاقه! دوزاری هستی مثل بقیه‌ی خون‌شورای هم‌صِنفت.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 120647
+
+<div align="center">
+  <a href="telegram/content/alonews_120647_1779036696.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ از طریق Truth Social:
+برای ایران، ساعت در حال تیک‌تاک است و بهتر است سریع حرکت کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند.
+
+
+🔴زمان اهمیت حیاتی دارد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120646
+
+<div align="center">
+  <a href="telegram/content/alonews_120646_1779036696.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر قطر با نخست‌وزیر پاکستان درباره ایران صحبت کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 20:12
 ---
 
